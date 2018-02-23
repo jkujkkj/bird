@@ -1,3 +1,8 @@
+<h1 align="center"><b>韩国天梯书店九天班　有缘人相继而来</b></h1>
+
+
+<hr>
+
 <h1 align="center"><b>在温尼伯健康展上介绍法轮功</b></h1>
 
 <table border="0" cellspacing="3" cellpadding="3">
