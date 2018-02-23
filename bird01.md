@@ -1,5 +1,5 @@
-<h1 align="center"><b>过大年 大陆游客在澳门了解法轮功</b></h1>
 
+<h1 align="center"><b>过大年 大陆游客在澳门了解法轮功</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
