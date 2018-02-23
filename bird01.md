@@ -1,4 +1,17 @@
 
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="bird/img/503295519628-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">漫画：九评揭开中共内幕。(大纪元)</td>
+</tr>
+</tbody>
+</table>
+
+<hr>
+
 <h1 align="center"><b>少年的记忆</b></h1>
 
 【大纪元2016年04月05日讯】在一个好的家庭中长大成人的孩子，是幸福的。可是对于我而言，童年幸福的时光并不长久。
