@@ -11,7 +11,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2015-5-3-minghui-heilongjiang-liuyulan--ss.jpg" width=880></td>
+<td align="center"><IMG SRC="bird/img/2015-5-3-minghui-heilongjiang-liuyulan--ss.jpg" width=200></td>
 </tr>
 <tr>
 <td align="center">
@@ -23,7 +23,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2015-5-3-minghui-heilongjiang-yu--ss.jpg" width=880></td>
+<td align="center"><IMG SRC="bird/img/2015-5-3-minghui-heilongjiang-yu--ss.jpg" width=200></td>
 </tr>
 <tr>
 <td align="center">于忠柱</td>
@@ -54,7 +54,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2009-2-24-201835-0--ss.jpg" width=880></td>
+<td align="center"><IMG SRC="bird/img/2009-2-24-201835-0--ss.jpg" width=300></td>
 </tr>
 <tr>
 <td align="center">徐大为</td>
@@ -68,7 +68,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2009-2-24-201835-1--ss.jpg" width=880></td>
+<td align="center"><IMG SRC="bird/img/2009-2-24-201835-1--ss.jpg" width=300></td>
 </tr>
 <tr>
 <td align="center">徐大为被沈阳东陵监狱迫害得骨瘦如柴、身上有多处电击印痕，臀部皮肤坏死。</td>
@@ -81,7 +81,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2011-10-30-cmh-yongchang-194337-0--ss.jpgX" width=880></td>
+<td align="center"><IMG SRC="bird/img/2011-10-30-cmh-yongchang-194337-0--ss.jpgX" width=300></td>
 </tr>
 <tr>
 <td align="center">历尽沧桑的王奶奶</td>
