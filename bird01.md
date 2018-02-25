@@ -174,7 +174,7 @@
 </table>
 
 【明慧网二零一五年十二月十七日】（接上文）
-<b>XXXXX</b><p>儿子三天被打死，老母亲忧郁成疾第二年离世
+<b>儿子三天被打死，老母亲忧郁成疾第二年离世</b><p>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
