@@ -1,5 +1,8 @@
 <hr>
 
+<h1 align="center"><b>真善忍美术馆美西迎客 西人创业家夫妇了心愿</b></h1>
+
+
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
