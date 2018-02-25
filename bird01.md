@@ -81,7 +81,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2011-10-30-cmh-yongchang-194337-0--ss.jpgX" width=300></td>
+<td align="center"><IMG SRC="bird/img/2011-10-30-cmh-yongchang-194337-0--ss.jpg" width=300></td>
 </tr>
 <tr>
 <td align="center">历尽沧桑的王奶奶</td>
