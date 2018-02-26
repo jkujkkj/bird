@@ -1,8 +1,9 @@
 <h1 align="center"><b>半导体科技人为何走入修炼</b></h1>
 
+<table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/-863-600x400.jpg" width=880></td>
+<td align="center"><IMG SRC="bird/img/-863-600x400.jpg" width=880" width=880></td>
 </tr>
 <tr>
 <td align="center">李东兴全家福——在加拿大西北部的冰河区</td>
