@@ -3,9 +3,9 @@
 
 【明慧网二零一八年二月二十五日】（明慧记者采菊纽约报道）二零一八年二月十八日，大年初三，阳光灿烂，春风佛面。一大早纽约布碌伦的法轮功学员们就早早的来到真相点上，挂好真相横幅，准备好真相资料，今天是纽约第三大华人社区布碌伦八大道一年一度庆祝新年的日子，也是法轮功学员们给当地的父老乡亲拜大年送真福劝三退（退出中共党团队）的好日子。
 
-<img src="2018-2-24-minghui-newyork-01--ss.jpg">
-<img src="2018-2-24-minghui-newyork-02--ss.jpg">
-<img src="2018-2-24-minghui-newyork-03--ss.jpg">
+<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/2018-2-24-minghui-newyork-01--ss.jpg">
+<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/2018-2-24-minghui-newyork-02--ss.jpg">
+<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/2018-2-24-minghui-newyork-03--ss.jpg">
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
