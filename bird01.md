@@ -1,4 +1,4 @@
-<IMG SRC="img/fq.jpg" width=880></p>
+<IMG SRC="bird/img/fq.jpg" width=880></p>
 
 <hr>
 
