@@ -1,4 +1,15 @@
-<img src="MsBi_NewYork-600x400.jpg">
+<h1 align="center"><b>半导体科技人为何走入修炼</b></h1>
+
+
+<tbody>
+<tr>
+<td align="center"><IMG SRC="bird/img/-863-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">李东兴全家福——在加拿大西北部的冰河区</td>
+</tr>
+</tbody>
+</table>
 
 <hr>
 
