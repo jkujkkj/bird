@@ -1,3 +1,4 @@
+<img src="MsBi_NewYork-600x400.jpg">
 
 <hr>
 
