@@ -1,3 +1,7 @@
+<IMG SRC="img/fq.jpg" width=880></p>
+
+<hr>
+
 <h1 align="center"><b>半导体科技人为何走入修炼</b></h1>
 
 <table border="0" cellspacing="3" cellpadding="3">
