@@ -10,7 +10,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="bird/img/2018-2-24-minghui-newyork-04--ss.jpg" width=880></td>
+<td align="center"><IMG SRC="bird/img/2018-2-24-minghui-newyork-04--ss.jpg" width=500></td>
 </tr>
 <tr>
 <td align="center">二零一八年二月十八日， 年初三，纽约布碌伦八大道车水马龙，法轮功学员们给当地的父老乡亲拜大年、送真福、劝三退。</td>
