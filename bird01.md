@@ -5,7 +5,9 @@
 
 <h1 align="center"><b>父母亲的故事</b></h1>
 
-<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/52.jpg">
+<div align="center">
+<img src="bird/img/52.jpg">
+</div>
 
 【明慧网二零一八年二月十日】我的父母是退休干部，都是八十多岁的人了，这些年他们没有给儿女添任何麻烦，而且经常是他们在照顾我们、帮助我们，儿女们从开始对法轮功不相信、有偏见，到现在我们全家都相信法轮大法，相信真善忍，相信法轮大法好。
 下面我就讲讲他俩的真实故事。
