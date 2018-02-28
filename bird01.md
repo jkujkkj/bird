@@ -1,6 +1,4 @@
 
-<a href="https://git.io/ffq"><IMG SRC="bird/img/FreeGate111-Logo.jpg" width=880></p></a>
-
 <hr>
 
 <h1 align="center"><b>桩桩冤判何时了？</b></h1>
