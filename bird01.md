@@ -204,20 +204,6 @@
 
 【明慧网二零一八年二月二十五日】（明慧记者采菊纽约报道）二零一八年二月十八日，大年初三，阳光灿烂，春风佛面。一大早纽约布碌伦的法轮功学员们就早早的来到真相点上，挂好真相横幅，准备好真相资料，今天是纽约第三大华人社区布碌伦八大道一年一度庆祝新年的日子，也是法轮功学员们给当地的父老乡亲拜大年送真福劝三退（退出中共党团队）的好日子。
 
-<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/2018-2-24-minghui-newyork-01--ss.jpg">
-<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/2018-2-24-minghui-newyork-02--ss.jpg">
-<img src="https://github.com/jkujkkj/bird/blob/master/bird/img/2018-2-24-minghui-newyork-03--ss.jpg">
-
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="bird/img/2018-2-24-minghui-newyork-04--ss.jpg" width=500></td>
-</tr>
-<tr>
-<td align="center">二零一八年二月十八日， 年初三，纽约布碌伦八大道车水马龙，法轮功学员们给当地的父老乡亲拜大年、送真福、劝三退。</td>
-</tr>
-</tbody>
-</table>
 
 和往年一样，法轮功学员们为新年特地准备了彩色氢气球，受到了民众的青睐，人们纷纷汇聚过来讨气球得吉利。气球一面写着“法轮大法好”，一面写着“真善忍好”，非常醒目。等气球的时候，学员们开始劝三退；拿气球的时候，学员们帮他们系好，同时引导他们念“法轮大法好，真善忍好”，告诉他们法轮大法是佛家高德大法，一定要记住“法轮大法好，真善忍好，天赐洪福”，同时把最新的明慧画刊《永恒》和大纪元特刊《共产主义的终极目的》送给他们，嘱咐他们回去一定要好好看看，明白为什么要三退，明白真相得真福。
 
