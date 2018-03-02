@@ -238,17 +238,10 @@
 
 许多人看了真相介绍，毫不犹豫地签了名。也有很多人非常地不理解为什么会发生活摘器官这样的事情，这太残忍，太可怕了。
 
+<div align="center">
+<img src="bird/img/2018-2-24-london-china-town_01--ss (1).jpg">
+</div>
 
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="bird/img/2018-2-24-london-china-town_01--ss (1).jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">图：行人踊跃签名，谴责中共迫害</td>
-</tr>
-</tbody>
-</table>
 
 遥遥，还是一个高中生，今天也来这里讲真相。她跟随妈妈修炼的时间和她的年龄一样长。妈妈在中国开始修炼时还是大学生，在念博士一年级时被迫害失去了学业，后来又经历了被抓，流离失所，离婚，被劳教，失去工作等等。遥遥就是在这样动荡、恐惧的生活环境下长大的。因为与妈妈一直坚持学法，所以遥遥从小就知道按照法轮功的真、善、忍的法理做事情，造就了她真诚，善良，忍耐的性格。
 
