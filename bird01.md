@@ -1,5 +1,7 @@
-
 <a href="https://git.io/ffq"><IMG SRC="bird/img/667.jpg" width=880></p></a>
+
+<IMG SRC="bird/img/0303-1.jpg" width=880></p>
+
 <hr>
 
 <h1 align="center"><b>越南女记者顽疾缠身面临失明 一本奇书让她见到彩虹</b></h1>
