@@ -4,6 +4,14 @@
 
 <hr>
 
+<h1 align="center"><b>生命的光焰–献给中国的脊梁</b></h1>
+
+<div align="center">
+<img src="bird/img/1602200107001812.jpg">
+</div>
+
+<hr>
+
 <h1 align="center"><b>墨西哥联邦政府机构员工学炼法轮功</b></h1>
 
 <div align="center">
