@@ -54,7 +54,7 @@
 </div>
 
 <div align="center">
-<img src="bird/img/c7 (3).jpg">
+<img src="bird/img/c7(3).jpg">
 </div>
 
 克里丝的脸上，挂着岁月的风霜，透著平静和欢愉。与她交谈时，可以感到她发自内心的快乐。那种快乐，有着动人的感染力，仿佛能够融化人生的苦涩。
