@@ -34,7 +34,7 @@
 多位香港及大陆知名人士在集会上发言。保卫香港自由联盟发言人韩连山到场声援，他呼吁全球加入过共产党的人快快退党，“当共产党是一人专政，一人话事，任何事情都是一言九鼎，一锤定音，各位：这个共产党已经到了无法再腐化下去⋯⋯共产党其实严格来讲，今天已经灭亡。”他指共产党已返魂乏术，不退党只会继续沉沦下去，“共产党对香港人民、对中国老百姓的打压，我们是不会噤声，我们会继续发声向全世界人民讲出共产党的邪恶”。
 
 <div align="center">
-<IMG SRC="bird/img/20180318-HUAMING-HONGKONG-03.jpg"width=640>
+<IMG SRC="bird/img/20180318-HUAMING-HONGKONG-03.jpg"width=300>
 </div>
 <div align="center">
 韩连山</div>
@@ -43,7 +43,7 @@
 未能来到现场的前立法会议员梁国雄透过电话连线发言，指从“两会”可以看到中共独裁专政，呼吁不要被中共淫威吓倒。他祝愿多年坚持反迫害的法轮功学员未来能够更加坚忍，“祝愿大家未来能够身心更加健康，未来能够在高压下更加挺拔”。
 
 <div align="center">
-<IMG SRC="bird/img/20180318-HUAMING-HONGKONG-06.jpg"width=640>
+<IMG SRC="bird/img/20180318-HUAMING-HONGKONG-06.jpg"width=300>
 </div>
 <div align="center">
 曾健成</div>
