@@ -11,7 +11,7 @@
 </div>
 
 <div align="center">
-文字XXX
+去年9月6日，郭文贵于视频中称，马航MH370失踪事件，为一宗政治暗杀事件。(MOHD RASFAN/AFP/Getty Images)
 </div>
 <p>
  
