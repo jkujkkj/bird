@@ -37,7 +37,7 @@
 临走前本·格林的朋友在一旁也说：“我和本的想法是一致的，我也想真心帮助他们，希望他们好运！”
 
 <div align="center">
-<IMG SRC="bird/img/2018-3-22-au-sydney_03--ss.jpgg" width=640>
+<IMG SRC="bird/img/2018-3-22-au-sydney_03--ss.jpg" width=640>
 </div>
 
 <div align="center">
