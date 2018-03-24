@@ -2,7 +2,6 @@
 
 <IMG SRC="bird/img/0321.jpg" width=880></p>
 
-<IMG SRC="bird/img/圖片 2.jpg" width=880></p>
 <hr>
 
 <h1 align="center"><b>活摘人民器官牟利 学者：中共把中国变监狱</b></h1>
