@@ -22,8 +22,6 @@
 
 944号决议案得到了众议院跨党派的支持，最后投票表决时以156票赞成、零票反对而获得一致通过。
 
-<h1 align="center"><b>xxx</b></h1>
-
 <div align="center">
 <IMG SRC="bird/img/2018-3-25-george-house-support_02-ss.jpg" width=640>
 </div>
