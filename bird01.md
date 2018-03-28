@@ -7,9 +7,6 @@
 
 <h1 align="center"><b>纽约中领馆前 近十七年的无声抗议</b></h1>
 
-
-<b>“我们没说话，但发出了巨大声音” 馆外中国人抢拍法轮功横幅</b><p>
- 
 <div align="center">
 <IMG SRC="bird/img/5c0721834dd5f483117482164d8cd695-450x300.jpg" width=640>
 </div>
@@ -50,7 +47,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/6-1-600x400.jpgg" width=640>
+<IMG SRC="bird/img/6-1-600x400.jpg" width=640>
 </div>
 
 <div align="center">
