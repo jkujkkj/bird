@@ -7,7 +7,7 @@
 <h1 align="center"><b>曼哈顿街心公园的美国大学生</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/20170607_191415-600x400" width=640>
+<IMG SRC="bird/img/20170607_191415-600x400.jpg" width=640>
 </div>
 
 <div align="center">
