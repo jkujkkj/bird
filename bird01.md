@@ -2,7 +2,6 @@
 
 <IMG SRC="bird/img/0329.jpg" width=880></p>
 
-
 <hr>
 
 <h1 align="center"><b>前新华社长田聪明病亡 曾参与天安门自焚伪案</b></h1>
