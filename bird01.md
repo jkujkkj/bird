@@ -47,7 +47,7 @@
 来自阿拉斯加州的瑞秋（Rachel）在与法轮功学员的交谈时了解到法轮功及在中国发生的迫害。她对此感到不可思议：“这么平和的炼功应该在哪里都没有问题的。”她在制止活摘器官的请愿书上签字，并拿了一些资料以便以后进一步了解。
 
 <div align="center">
-<IMG SRC="bird/2018-3-28-philly-celebrate-3yi_05--ss.jpg" width=640>
+<IMG SRC="bird/img/2018-3-28-philly-celebrate-3yi_05--ss.jpg" width=640>
 </div>
 
 <div align="center">
