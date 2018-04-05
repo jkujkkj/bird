@@ -47,7 +47,7 @@
 王纪平，佳木斯市驻军二二四医院麻醉科主治医师。
 
 <div align="center">
-<IMG SRC="bird/img/2009-2-23-212251-0.jpg" width=640>
+<IMG SRC="bird/img/2009-2-23-212251-0.jpg" width=350>
 </div>
 
 <div align="center">
@@ -113,7 +113,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/2006-2-24-daliankx-04.jpg" width=640>
+<IMG SRC="bird/img/2006-2-24-daliankx-04.jpg" width=400>
 </div>
 
 <div align="center">
@@ -132,7 +132,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/1509030911462192.jpg" width=640>
+<IMG SRC="bird/img/1509030911462192.jpg" width=350>
 </div>
 
 <div align="center">
@@ -151,7 +151,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/20150904104441428.jpg" width=640>
+<IMG SRC="bird/img/20150904104441428.jpg" width=350>
 </div>
 
 <div align="center">
@@ -173,7 +173,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/120810233146836-600x412.jpg" width=640>
+<IMG SRC="bird/img/120810233146836-600x412.jpg" width=350>
 </div>
 
 <div align="center">
@@ -193,7 +193,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/2012-11-9-minghui-lanzhou-wangyoujiang-1.jpg" width=640>
+<IMG SRC="bird/img/2012-11-9-minghui-lanzhou-wangyoujiang-1.jpg" width=350>
 </div>
 
 <div align="center">
@@ -224,11 +224,6 @@
 杜汉文，男，原重庆某部队正营级军官，自1996年4月开始修炼法轮功。
 
 杜汉文曾被非法抄家15次、刑事拘留2次、非法劳教3次、非法洗脑1次。
-
-
-
-
-
 
 <hr>
 
