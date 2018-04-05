@@ -118,7 +118,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="bird/img/6cf3baded3cee2f06bd2134d5b754457-600x400.jpgg" width=640>
+<IMG SRC="bird/img/6cf3baded3cee2f06bd2134d5b754457-600x400.jpg" width=640>
 </div>
 
 <div align="center">
