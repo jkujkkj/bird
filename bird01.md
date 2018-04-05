@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="bird/img/666.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/0303-1.jpg" width=880></p>
+<IMG SRC="bird/img/6b396aefb260bb6e850b9e2b3054be0c489b.jpg" width=880></p>
 
 
 <hr>
