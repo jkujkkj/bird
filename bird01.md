@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="bird/img/666.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/f0407.jpg" width=880></p>
+<IMG SRC="bird/img/f-0407.jpg" width=880></p>
 
 <h1 align="center"><b>三亿人三退　预示中共解体</b></h1>
 
