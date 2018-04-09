@@ -2,8 +2,6 @@
 
 <IMG SRC="bird/img/22f8ebd7c2b1be43.jpg" width=880></p>
 
-1-58-600x372.jpg
-
 <hr>
 
 <h1 align="center"><b>“四‧二五”中南海万人上访真相</b></h1>
