@@ -2,6 +2,8 @@
 
 <IMG SRC="bird/img/22f8ebd7c2b1be43.jpg" width=880></p>
 
+<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
+<a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备apk 请下载安装 才能阅读影视epub</a>
 <hr>
 
 <h1 align="center"><b>昔日迫害大法徒 今日恶报上身</b></h1>
