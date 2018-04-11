@@ -10,7 +10,7 @@
 <h1 align="center"><b>澳洲艺术家：快乐源自修炼法轮大法</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/1410261020322504-450x679 (1).jpg" width=640>
+<IMG SRC="bird/img/1410261020322504-450x679.jpg" width=640>
 </div>
 
 <div align="center">
