@@ -14,7 +14,7 @@
 </div>
 
 <div align="center">
-文字XXX
+德国女孩、法轮功学员娜塔丽（明慧网）
 </div>
 <p>
 
