@@ -10,7 +10,7 @@
 <h1 align="center"><b>燃起生活明灯 德国一女孩对李洪志先生的感恩</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/2017-8-26-mh-natalie.jpg" width=640>
+<IMG SRC="bird/img/2017-8-26-mh-natalie.jpg" width=450>
 </div>
 
 <div align="center">
