@@ -8,7 +8,7 @@
 
 <hr>
 
-<h1 align="center"><b>xxx</b></h1>
+<h1 align="center"><b>停止迫害才是最明智的选择</b></h1>
 
 <div align="center">
 <IMG SRC="bird/img/flg-1.jpg" width=640>
