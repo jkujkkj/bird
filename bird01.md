@@ -10,7 +10,7 @@
 <h1 align="center"><b>祈福，在寒夜将尽……</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/1608301518242669-600x400.jpgg" width=640>
+<IMG SRC="bird/img/1608301518242669-600x400.jpg" width=640>
 </div>
 
 <div align="center">
@@ -65,7 +65,7 @@
 </b><p>
 
 <div align="center">
-<IMG SRC="bird/img/1608301512062669.jpg" width=640>
+<IMG SRC="bird/img/1608301512062669.jpg" width=400>
 </div>
 
 <div align="center">
