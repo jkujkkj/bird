@@ -128,7 +128,7 @@
 <h1 align="center"><b>费城《娱乐时间杂志》社群分享法轮功修炼故事</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/MAY-JUNE-2017w_Page_017a-306x400.jpg" width=640>
+<IMG SRC="bird/img/MAY-JUNE-2017w_Page_017a-306x400.jpg" width=500>
 </div>
 
 <div align="center">
