@@ -5,6 +5,39 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
+
+<hr>
+
+<h1 align="center"><b>费城《娱乐时间杂志》社群分享法轮功修炼故事</b></h1>
+
+<div align="center">
+<IMG SRC="bird/img/MAY-JUNE-2017w_Page_017a-306x400.jpg" width=640>
+</div>
+
+<div align="center">
+《娱乐时间杂志》整版报导了费城法轮功学员举办的世界法轮大法日活动。上图1：法轮功学员伊薇特•斯嘉丽；中图1：费城市议员（前右）送来了费城对世界法轮大法日的褒奖；下图1：大费城部分法轮功学员在费城自由钟独立宫广场草坪上炼功。（明慧网）
+</div>
+<p>
+
+【大纪元2017年07月04日讯】（大纪元记者肖捷费城报导）费城《娱乐时间杂志》（FunTimes）于6月23日晚在费城市中心52层高的金字塔俱乐部（Pyramid Club）举办了5、6月双月刊发行新闻发布会。娱乐时间杂志》是面向费城非裔和加勒比海裔的文化和生活杂志。父亲节刚过，最新一期杂志介绍了在费城/新泽西对非裔及加勒比海裔社区有影响力的11位父亲，其中有杂志发行商、摄影师、主教、公司总裁、学者作家、教授、音乐家、费城普通法官、警察局长、刑事辩护律师等。
+
+<div align="center">
+<IMG SRC="bird/img/FunTImes_DavidOh_DSC01207-450x411.jpg" width=640>
+</div>
+
+<div align="center">
+费城市议员David Oh褒奖Chioma Nwachukwuis在美国及国际上对公共健康护理方面的贡献。左二起：获奖者Chioma Nwachukwuis、费城市议员David Oh和FunTimes杂志出版商Eric Nzeribe 
+</div>
+<p>
+
+费城市议员David Oh前来颁发两份褒奖，其中一个是褒奖Chioma Nwachukwuis在公共和社区健康护理方面的贡献。Nwachukwuis现任马里兰州Washington Adventist University大学护理系兼职教授，她曾于2005年和2006年去尼日利亚（Nigeria）参加了两次医疗救援任务，于2011年又去尼日利亚参加了两次医疗救援任务，并以社区健康、门诊护理和专业教育的形式提供免费医疗讲座。Nwachukwuis最近获美国护士执业者协会（AANP）2017年DC卓越奖。
+
+这一期杂志最引人注目的是里面有一页介绍了源自于中国、现洪传世界上亿人的法轮大法，也叫法轮功。其中还介绍了一位主流社会非裔女士Yvette Scarlett修炼法轮功的故事，Yvette说：“大约16年前我通过我的证婚牧师听到了法轮大法。那位牧师一直对武术和来自中国的高深的精神修炼感兴趣。法轮大法包括五套功法，教人在工作中、家庭中都要按‘真、善、忍’为准则，不断提高一个人的道德修养，达到身、心健康。”
+
+Yvette表示： “有时在生活中，你知道做对了，可能很难用语言描述，但你知道你就像回家了一样。打坐帮我宁静，帮我解决焦虑。我们周末早上一起到自由钟公园炼功，让从大陆来旅游的华人及所有人了解法轮功的重要，可以自由炼功，但在中国法轮功却被中共残酷迫害了18年。你可以随时炼功，但一起炼功很舒服。全球有上亿的人炼法轮功。”
+
+《娱乐时间杂志》于1992年在利比里亚成立，2008年迁至费城，它跨越文化、社区和国家，在本地三州地区发行2万9千份。
+
 <hr>
 
 <h1 align="center"><b>制止“活摘” 法轮功学员万锦市传真相</b></h1>
