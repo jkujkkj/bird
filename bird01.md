@@ -10,7 +10,7 @@
 <h1 align="center"><b>“四•二五”上访：中共迫害在先 法轮功依法上访在后</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/05.jpg" width=640>
+<IMG SRC="bird/img/0418.jpg" width=640>
 </div>
 
 <div align="center">
