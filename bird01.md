@@ -61,7 +61,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="2018-4-20-singapore-425_08--ss.jpg" width=640>
+<IMG SRC="bird/img/2018-4-20-singapore-425_08--ss.jpg" width=640>
 </div>
 
 <div align="center">
