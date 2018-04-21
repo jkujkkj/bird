@@ -22,7 +22,6 @@
 </div>
 <p>
 
-<b>xxx</b><p>
 <div align="center">
 <IMG SRC="bird/img/2018-4-20-singapore-425_02--ss.jpg" width=640>
 </div>
