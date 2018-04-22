@@ -12,7 +12,7 @@
 <h1 align="center"><b>俄罗斯军医学院毕业生：大法解惑人生路</b></h1>
 
 <div align="center">
-<IMG SRC="bird/img/2017-5-7-russian-story_03-ss.jpg" width=640>
+<IMG SRC="bird/img/2017-5-7-russian-story_03-ss.jpg" width=400>
 </div>
 
 <div align="center">
