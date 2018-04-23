@@ -32,7 +32,6 @@
 台湾法轮大法学会4月22日举办全球声援三亿人退出中共党、团、队暨纪念“4.25”中国法轮功学员和平上访19周年活动。图为法轮功学员在台北游行。</div>
 <p>
 
-
 <div align="center">
 <IMG SRC="bird/img/1804220943472384-600x400.jpg" width=640>
 </div>
@@ -53,7 +52,7 @@
 杨小姐也说，许多中国游客是第一次见到法轮功，接触到被对岸封锁的真相，透过这次游行可以让包括陆客在内的全世界游客知道这些真相，这是件非常有意义的事情，她回忆，“我在游行时看见有民众从不知道法轮功，到理解了这次游行的意义，选择向我们比赞，这真的很让我触动。”
 
 <div align="center">
-<IMG SRC="bird/img/1804220944192384-600x400.jpgg" width=640>
+<IMG SRC="bird/img/1804220944192384-600x400.jpg" width=640>
 </div>
 
 <div align="center">
@@ -79,7 +78,7 @@
 <b>大陆游客：中国人有知道真相的权利</b><p> 
 
 <div align="center">
-<IMG SRC="bird/img/ 1804220944262384-600x400.jpg " width=640>
+<IMG SRC="bird/img/1804220944262384-600x400.jpg " width=640>
 </div>
 
 <div align="center">
@@ -87,7 +86,7 @@
 
 <p>
 <div align="center">
-<IMG SRC="bird/img/ 1804220944382384-600x400.jpg " width=640>
+<IMG SRC="bird/img/1804220944382384-600x400.jpg " width=640>
 </div>
 
 <div align="center">
@@ -110,7 +109,7 @@
 
 Bob也说，他非常佩服法轮功的勇气，目前全世界上只有法轮功敢于对世人讲出中共的真相。
 <div align="center">
-<IMG SRC="bird/img/ 1804220944552384-600x400.jpg " width=640>
+<IMG SRC="bird/img/1804220944552384-600x400.jpg " width=640>
 </div>
 
 <div align="center">
@@ -118,7 +117,7 @@ Bob也说，他非常佩服法轮功的勇气，目前全世界上只有法轮�
 <p>
 
 <div align="center">
-<IMG SRC="bird/img/ 1804220945022384-600x400.jpg " width=640>
+<IMG SRC="bird/img/1804220945022384-600x400.jpg " width=640>
 </div>
 
 <div align="center">
