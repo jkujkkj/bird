@@ -7,7 +7,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>组图：悉尼盛大游行庆祝世界法轮大法日（一）</b></h1>
@@ -186,7 +185,7 @@
 有一个幼儿园老师，被送进劳教所的时候，腰椎是向一侧弯的，脚踝骨断后没接好，往外伸出来一截，不能走路，生活不能自理，被迫害成这样了，当地610还大言不惭地说她危害社会。对她，劳教所一样进行各种迫害：熬鹰，熬得脸蜡黄蜡黄的；劳动，做手工活，她的劳动任务和别人都是一样的，她腰疼得坐不住，还得干，看着就让人揪心；灌食，狱警们恐吓她，买了一堆皮管子，一直要灌到她屈服为止，但是她没有屈服；再后来就是封闭式转化，至于在被封闭转化期间到底发生了什么，外人不得而知，据说最后是医院化验说她尿蛋白，才返回当地610的……
 
 <div align="center">
-<IMG SRC="bird/img/2012-6-19-cmh-kuxingtu-38--ss.jpg" width=640>
+<IMG SRC="bird/img/2012-6-19-cmh-kuxingtu-38--ss.jpg" width=350>
 </div>
 
 <div align="center">
