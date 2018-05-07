@@ -9,7 +9,7 @@
 
 <hr>
 
-<h1 align="center"><b>组图：悉尼盛大游行庆祝世界法轮大法日（一）</b></h1>
+<h1 align="center"><b>组图：悉尼盛大游行庆祝世界法轮大法日</b></h1>
 
 <div align="center">
 <IMG SRC="bird/img/20180505-LIULING-WORLD-FLDF-DAY-01-600x400.jpg" width=640>
