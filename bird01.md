@@ -1,8 +1,8 @@
-
+1
 
 <a href="https://git.io/ffq"><IMG SRC="bird/img/889.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/0510.jpg" width=880></p>
+<IMG SRC="bird/img/0511.jpg" width=880></p>
 
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
@@ -7042,4 +7042,4 @@ Vázquez表示，有些部门的人知道了我们的学功活动后，也想在
 
 <b>“我想进一步学习”</b><p>
 
-具敬颜女士是跟随丈夫李振豪先生一起来的，她说自己原来是一个非常现实的人，但是当丈夫说想学法轮功
+具敬颜女士
