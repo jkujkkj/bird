@@ -167,11 +167,9 @@
 
 一个辉煌的日子，划出未来神话的开端、希望之路的起点，人类和历史将永远铭记。
 
+<hr>
 
-
-<hr><hr>
-
-<h1 align="center"><b>辉煌的日子——法轮大法洪传26周年</b></h1>
+<h1 align="center"><b>台学者盛赞法轮功 恭贺李洪志先生华诞</b></h1>
 
 <div align="center">
 <IMG SRC="bird/img/1204081103272117.jpg" width=640>
