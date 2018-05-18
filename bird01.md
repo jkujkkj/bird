@@ -32,7 +32,7 @@
 
 
 <div align="center">
-<IMG SRC="bird/img/2013-7-10-minghui-chris-kitze-01.jpg" width=350>
+<IMG SRC="bird/img/圖片 31.jpg" width=350>
 </div>
 
 <div align="center">
