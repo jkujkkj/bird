@@ -6,10 +6,7 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
-
-<h1 align="center"><b>投书：披露中共治下的极端黑暗与无法无天</b></h1>
 
 <h1 align="center"><b>前人大代表：被捕好友很健康却每天被抽血</b></h1>
 
