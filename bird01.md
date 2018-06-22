@@ -129,10 +129,6 @@
 2018年6月20日，来自世界各地的部分法轮功学员美国首都华盛顿举行反迫害大游行。</div>
 <p>
 
-<div align="center">
-<IMG SRC="bird/img/2018年6月20日，来自世界各地的部分法轮功学员美国首都华盛顿举行反迫害大游行。" width=640>
-</div>
- 
  <div align="center">
 <IMG SRC="bird/img/IMG_9749ab-1-600x400.jpg" width=640>
 </div>
