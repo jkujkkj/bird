@@ -9,6 +9,137 @@
 
 <hr>
 
+<h1 align="center"><b>各族裔法轮功华盛顿DC反迫害大游行</b></h1>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9706ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+6月20日，来自全球各地部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。
+</div>
+<p>
+【大纪元2018年06月21日讯】6月20日，来自全球各地部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。
+
+中午12点举行反迫害大游行，游行路线从国会西边草坪出发，途经宾西法尼亚大道、宪法大道、美国白宫，一直到华盛顿纪念碑前，全程共2.4英里。
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9608ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自俄罗斯的学员。
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9687ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自土耳其的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9691ab-1-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自奥地利的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9688ab-1-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自瑞典的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9712ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自荷兰的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9714ab-600x384.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，全球部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自芬兰的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9715ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，全球部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自新西兰的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9723ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自印尼的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9725ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自澳洲的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9742ab-1-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自印度的学员。</div>
+<p>
+
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9739ab-1-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自罗马尼亚的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9708ab-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自西班牙的学员。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/IMG_9735ab-1-600x399.jpg" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，来自世界各地的部分法轮功学员美国首都华盛顿举行反迫害大游行。</div>
+<p>
+
+<div align="center">
+<IMG SRC="bird/img/2018年6月20日，来自世界各地的部分法轮功学员美国首都华盛顿举行反迫害大游行。" width=640>
+</div>
+
+<div align="center">
+2018年6月20日，部分法轮功学员美国首都华盛顿举行反迫害大游行。图为来自台湾的学员。</div>
+<p>
+
+
+<hr>
+
 <h1 align="center"><b>澳洲人体展 遗体被爆来自中国良心犯</b></h1>
 
 <div align="center">
