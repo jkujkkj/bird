@@ -61,7 +61,7 @@ Candlelight Vigil – FalunDafa at Washington DC, 06-22-2018</div>
 英国大法小弟子法同和爸爸也从伦敦赶来烛光守夜。今年11岁的法同从未见过生活在中国大陆的外婆孟秀娥。
 
 <div align="center">
-<IMG SRC="bird/img/ 1806230022511160-600x386.jpg" width=640>
+<IMG SRC="bird/img/1806230022511160-600x386.jpg" width=640>
 </div>
 
 <div align="center">
