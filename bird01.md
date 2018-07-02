@@ -11,7 +11,7 @@
 <h1 align="center"><b>当我身穿旗袍约见美国议员的那一刻</b></h1>
 【大纪元2018年06月27日讯】为了这次的约见，我特意穿上了旗袍。我，一个70多岁的来自中国的老人，要约见美国参众两院的议员们。
 <div align="center">
-<IMG SRC="bird/img/ 2c981b1d02bec481-450x564.jpg" width=640>
+<IMG SRC="bird/img/2c981b1d02bec481-450x564.jpg" width=640>
 </div>
 
 <div align="center">
@@ -32,7 +32,7 @@
 <b>过去的一幕幕</b><p> 
 
 <div align="center">
-<IMG SRC="bird/img/ f8a88577e3778079-600x800.jpg " width=640>
+<IMG SRC="bird/img/f8a88577e3778079-600x800.jpg " width=640>
 </div>
 
 <div align="center">
@@ -42,7 +42,7 @@
 我年轻时上山下乡，嫁给了黑五类的儿子，中年离婚、丧子，四十多岁就一身病，心情抑郁，基本处于等死状态。1997年修炼法轮大法后，让我有了重生的感觉。不但身体健康了，最让我开心的是，我放下了许多生命中不能承受的怨恨的心，掀开生活崭新的一页。
 
 <div align="center">
-<IMG SRC="bird/img/ c38552194b3db688-600x450.jpg " width=640>
+<IMG SRC="bird/img/c38552194b3db688-600x450.jpg " width=640>
 </div>
 
 <div align="center">
@@ -62,7 +62,7 @@
 2001年5月，我被非法判了劳教，送进北京劳教人员调遣处。被关押的人称这里是“人间地狱”。
 
 <div align="center">
-<IMG SRC="bird/img/ 2007-11-16-bjpq-01.jpg " width=640>
+<IMG SRC="bird/img/2007-11-16-bjpq-01.jpg " width=640>
 </div>
 
 <div align="center">
