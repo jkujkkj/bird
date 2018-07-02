@@ -113,7 +113,7 @@
 这个场面让我非常感动，我很难想像在中国，一个位居高位的大官能对一个小女孩弯腰说话，并且如此郑重地回答了她的问题。这个画面，让我看到了人性，看到了人的善良，看到了希望……
 
 <div align="center">
-<IMG SRC="bird/img/1c8bd64ed6aefd1e-600x800.jpgg" width=400>
+<IMG SRC="bird/img/1c8bd64ed6aefd1e-600x800.jpg" width=400>
 </div>
 
 <div align="center">
