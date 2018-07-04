@@ -40,22 +40,22 @@
 <hr>
 
 <h1 align="center"><b>中国器官移植供体到底从哪来？</b></h1>
-<b>“震惊人类的堕落可以达到如此深重的程度！”</b><p>
  
 <div align="center">
 <IMG SRC="bird/img/folketingssalen-e1476903854567.jpg" width=640>
 </div>
 <p>
 
-
 【大纪元2016年10月17日讯】（大纪元记者李新丹麦报导）2016年9月底，加拿大著名人权律师大卫·麦塔斯（David Matas）在哥本哈根，向丹麦社会各界介绍他与加拿大外交部亚太司前司长大卫·乔高（David Kilgour）和记者伊森·葛特曼（Ethan Gutmann）一起合作的、对发生在中国大规模活体摘取器官罪行的最新调查报告：《血腥的器官摘取/大屠杀：更新版》（Bloody Harvest/The Slaughter ：An Update）。
 
+
+<b>“震惊人类的堕落可以达到如此深重的程度！”</b><p>
 丹麦广播电台“Radio24syv”在麦塔斯访问丹麦期间，邀请他到演播室做现场直播采访。
 
 丹麦电台“Radio24syv”介绍：“中国的医院进行器官移植的数量远远超过官方公布的数字。一份新的报告提出了一个非常严重的问题，那就是为中国精英提供移植器官的来源问题。”
 
 <div align="center">
-<IMG SRC="bird/img/2016-10-15-minghui-falun-gong-denmark_01-ss-1-450x175 .jpg" width=640>
+<IMG SRC="bird/img/2016-10-15-minghui-falun-gong-denmark_01-ss-1-450x175.jpg" width=640>
 </div>
 
 <div align="center">
