@@ -44,7 +44,7 @@
 回忆起当时的情景，她的脸上露出幸福的笑容。从此以后，她就按照李洪志师父教导的“真、善、忍”宇宙法理指导自己修炼，家庭也越来越和睦了。
 
 <div align="center">
-<IMG SRC="bird/img/ 201707029-e1501360251442.jpg " width=640>
+<IMG SRC="bird/img/201707029-e1501360251442.jpg " width=640>
 </div>
 
 <div align="center">
@@ -107,7 +107,7 @@
 多年来，孙女士虽然不断搬家，但一直遭到警察的骚扰和抄家。后来她在2014年12月有机会来到法国。在法国，她继续向中国大陆游客讲真相，真心希望帮助同胞认清中共的谎言，脱离它，免受中共的牵连。
 
 <div align="center">
-<IMG SRC="bird/img/ IMG_05556-e1501360179349.jpg " width=640>
+<IMG SRC="bird/img/IMG_05556-e1501360179349.jpg " width=640>
 </div>
 
 <div align="center">
