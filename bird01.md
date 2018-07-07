@@ -56,7 +56,7 @@ COHRC执行主任Grace Yin表示，中共官方每年1万-1.5万例的移植手�
 调查发现，很多中国医院的器官移植中心的床位利用率达100-200%，等待器官移植的病患名单很长。以一个月的住院期和100%的床位利用率保守计算，仅165家卫生部批准的器官移植医院每年的系统容量就达7万例以上。
 
 <div align="center">
-<IMG SRC="bird/img/COHRC-David-Li.jpg " width=640>
+<IMG SRC="bird/img/圖片3.jpg" width=640>
 </div>
 
 <div align="center">
@@ -92,7 +92,7 @@ COHRC执行主任Grace Yin表示，中共官方每年1万-1.5万例的移植手�
 报告联合作者David Li认为，强摘器官是中共国家推动的群体灭绝运动，医疗界和军方都卷入其中。
 
 <div align="center">
-<IMG SRC="bird/img/ COHRC-David-Li.jpg " width=640>
+<IMG SRC="bird/img/COHRC-David-Li.jpg " width=640>
 </div>
 
 <div align="center">
