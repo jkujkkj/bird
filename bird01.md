@@ -9,7 +9,7 @@
 
 <h1 align="center"><b>丹麦医生日 DAFOH再曝光中共活摘器官</b></h1>
 
-<div align="center"><img src="bird/img/ IMG_6807-600x400.jpg " width=640></div>
+<div align="center"><img src="bird/img/IMG_6807-600x400.jpg" width=640></div>
 <div align="center">11月17日，丹麦首都哥本哈根Balle Centre的展览大厅里，民众了解中共迫害法轮功真相签名支持法轮功。（大纪元）</div><p>
 
 【大纪元2016年11月18日讯】（大纪元特约记者陈默丹麦报导）11月17日，丹麦首都哥本哈根Balle Centre的展览大厅里人头攒动，来自丹麦各地区的医生和护士到哥本哈根参加一年一度的医生日（Lægedage）活动。每天有大约700—1,200人参加了此次活动。据主办方透露，参加活动的人数在5,000人次左右。
