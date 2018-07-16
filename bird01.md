@@ -5,7 +5,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>台北七二零反迫害游行和平理性感动民众</b></h1>
@@ -25,10 +24,8 @@
 <div align="center"><img src="bird/img/2018-7-14-taipei-720-parade9383_05--ss.jpg" width=640></div><p>
 <p>
 
-
 <div align="center"><img src="bird/img/2018-7-14-taipei-720-parade9383_06--ss.jpg" width=640></div>
 <p>
-
 
 <div align="center"><img src="bird/img/2018-7-14-taipei-720-parade9383_07--ss.jpg" width=640></div>
 <p>
@@ -47,7 +44,7 @@
 
 下午三点三十分由气势磅礡的天国乐团演奏雄壮的乐曲领队，法轮功学员游行队伍开始出发，后面有“大法洪传”，“千古奇冤”，“结束迫害”等整齐的队伍，行经台北市政府及各大学等文教区域，穿越台北最繁荣的信义商圈与东区街头，终点抵达台北市政府市民广场，全程共四点二公里。
 
-明真相大陆游客三退
+<b>明真相大陆游客三退</b><p>
 
 来自北京的胡先生，以个人行来台湾旅游十天，台北是他第三天行程，他沿途用单眼相机、手机跟着游行队伍录像、摄影，他表示，他想要记录着难得一见的画面，因为前几天的旅行，也看到过景点的法轮功学员，但是这次是看到这么大一群有纪律的团体——法轮功，他非常的好奇。
 
@@ -81,7 +78,7 @@
 
 张小姐认为修炼是一件非常美好的事情，修炼后她的身心有着巨大的变化，以前她有地中海贫血的问题，经常头晕目眩，神经衰弱常常晚上失眠睡不好觉，腰酸背痛，通过修炼，现在这些症状都没了，她以前经常坚持己见，现在她会先看自己，查找自己的不足，错了就改进。
 
-<div align="center"><img src="bird/img/ 2018-7-14-taipei-720-parade9383_10--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-7-14-taipei-720-parade9383_10--ss.jpg " width=640></div>
 <div align="center">图10：李娸嘉夫妻和小孩全家参加七二零反迫害游行活动</div><p>
 
 从事教育工作的李娸嘉，三年前，在一个因缘际会下，一位德国的朋友介绍法轮功，送他们一本《转法轮》，夫妻俩看到书中的内容觉得浅显易懂，但内涵却是博大精深，每看一次，随着心性的提升，都有不同的体会与收获，夫妻之间的相处经常用会用书上的内容对照，遇到矛盾先找自己，互相包容谦让，两个小孩也跟随学《洪吟》。
