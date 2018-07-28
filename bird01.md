@@ -5,7 +5,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>《求救信》多伦多影院公映　震撼中西方观众</b></h1>
@@ -26,10 +25,10 @@
 
 <b>省议员：通过来参加电影公映表明我的支持</b><p> 
 
-<div align="center"><img src="bird/img/ 2018-7-27-letter-from-masanjia-in-canada_03--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_03--ss.jpg" width=640></div>
 <div align="center">图3：加拿大安省议员山姆•奥斯特霍夫（Sam Oosterhoff）与多伦多青年法轮功学员合影，他表示通过来参加电影公映表明他的支持。（左二是导演李云翔，左三是议员山姆•奥斯特霍夫）</div><p>
 
-<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_04--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_04--ss.jpg" width=640></div>
 <div align="center">图4：加拿大安省议员山姆•奥斯特霍夫（Sam Oosterhoff，左）与导演李云翔合影。</div><p>
 
 加拿大安省有史以来最年轻的省议员、现年二十岁的山姆•奥斯特霍夫（Sam Oosterhoff）前来观看此次的公映。他说：“法轮大法的价值观，真、善、忍，是人们值得庆祝的价值观。这些价值观非常伟大，真的对每个人都非常有益。”而信仰这个理念的法轮功学员却遭到残酷的迫害，“观看这部影片真的让我感到很悲伤。希望我能够帮助（结束迫害），不管是否只是对一些人和政府施加压力等，我今天就是通过来参加此次的电影公映来表明我的支持。”
@@ -44,19 +43,19 @@
 
 <b>观众被主人翁的精神所打动</b><p> 
 
-<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_05--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_05--ss.jpg" width=640></div>
 <div align="center">图5：华裔观众杨女士（Susan Yang）为《求救信》主人公孙毅的无私所感动。</div><p>
 
 多伦多亚洲国际电影节的捐助者之一杨女士（Susan Yang）观看完后说：“影片主人翁是一个非常善良、非常坚强、非常无私的人。他摆脱酷刑折磨后，还帮助别人重获自由。尽管磨难重重，他始终坚持自己的信仰。”杨女士表示她很钦佩摄制组的勇气，“他们克服资金、干扰等困难，把记录片搬上大银幕。”
 
-<div align="center"><img src="bird/img/ 2018-7-27-letter-from-masanjia-in-canada_06--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_06--ss.jpg" width=640></div>
 <div align="center">图6：多伦多观众凯伦•奥利里（Karen O'Leary）说孙毅给她留下深刻印象。</div><p>
 
 多伦多观众凯伦•奥利里（Karen O'Leary）说：“主人翁是非常强大的一个人。他看起来只是一个低调的人，但他有能力在非常难以改变的中国改变一件事（指废除劳教制度）。因此，他本人以及无论在何种情况下，他的心都是勇往直前，给我留下了深刻印象。所以我认为人们可以改变这个世界，虽然这个世界对他和他的家人来说非常不友善，但我认为（他的）力量是惊人的。”
 
 凯伦表示希望更多人能观看这部电影，“在离场时，我对我的朋友说，特别是针对将自己的所有工作本身都视为回报的人权活动家们来说，应让这个故事传播得更广，让人们了解他们所不知道的中国背后正在发生的事情。我认为这在以前没有太多宣传。所以，这部影片非常强有力。”
 
-<div align="center"><img src="bird/img/ 2018-7-27-letter-from-masanjia-in-canada_07--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-7-27-letter-from-masanjia-in-canada_07--ss.jpg" width=640></div>
 <div align="center">图7：多伦多观众刘女士（Paula Liu）觉得人们应该来了解中国正在发生的事情。</div><p>
 
 多伦多观众刘女士（Paula Liu）说：“在中国发生的事情太令人震惊了，我之前听说过这部电影，今天亲自观看了，这部电影真是令人心碎。虽然是一部纪录片，这却是一部非常令人感动的电影。更多人应前来观看，了解中国真正正在发生的事情。”“毫无疑问，我觉得很多人应该知道这些并应该做些什么来帮助那些陷入此种困境的人。”
