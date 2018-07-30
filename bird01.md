@@ -9,7 +9,7 @@
 
 <h1 align="center"><b>中共对付老百姓的犯罪手段——绑架</b></h1>
 
-<div align="center"><img src="bird/img/073101" width=640></div>
+<div align="center"><img src="bird/img/073101.jpg" width=640></div>
 <div align="center">绘画：中共的暴力绑架。（明慧网）</div><p>
 
 【大纪元2018年07月26日讯】（大纪元记者罗琼综合报导）中共自1999年7月20日迫害法轮功以来，使用犯罪手段——绑架，把难以数计的法轮功学员关进洗脑班、劳教所、看守所、拘留所、精神病院、监狱等进行迫害。
