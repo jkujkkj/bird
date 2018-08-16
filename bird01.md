@@ -9,7 +9,7 @@
 
 <h1 align="center"><b>七十年党龄的老军人父亲退党</b></h1>
 
-<div align="center"><img src="bird/2017-1-2-hongkong-parade_16.jpg" width=640></div>
+<div align="center"><img src="bird/img/2017-1-2-hongkong-parade_16.jpg" width=640></div>
 <div align="center">香港举行声援中国民众退出中共党、团、队大游行。图为游行队伍中的图文“退出中共保平安”。</div><p>
 
 跟中共干了一辈子已有七十年党龄的军人父亲，一天在饭桌上突然说了一句：“中共真是流氓！”
