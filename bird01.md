@@ -16,8 +16,6 @@
 <div align="center"><img src="bird/img/2018-8-14-paris-place-du-trocadero_01--ss.jpg" width=640></div>
 <div align="center">图1：法轮功学员在法国巴黎艾菲尔铁塔下的人权广场演示法轮功功法</div><p>
 
-<b>xxx</b><p>
-
 <div align="center"><img src="bird/img/2018-8-14-paris-place-du-trocadero_02--ss.jpg" width=640></div>
 
 <div align="center"><img src="bird/img/2018-8-14-paris-place-du-trocadero_03--ss.jpg" width=640></div>
