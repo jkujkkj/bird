@@ -5,7 +5,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>一个80后新移民的风雨人生</b></h1>
@@ -39,7 +38,7 @@
 
 1992年，风靡全国的法轮功热潮传到双城。范文拓的妈妈成了一位法轮功修炼者。这位退役运动员，通过修炼，运动创伤后遗症消失了，心脏病好了。她把法轮功当作自己的人生指南，也作为教导儿子的指南。
 
-<div align="center"><img src="bird/img/IMG_1771-300x532.jpg " width=640></div>
+<div align="center"><img src="bird/img/IMG_1771-300x532.jpg " width=400></div>
 <div align="center">范文拓的妈妈以前是运动员。</div><p>
 
 8岁那年，范文拓跟着母亲一起阅读法轮功著作，一起炼功。每天早晨，教师大院里会想起炼功的音乐声；白天，范文拓和小朋友们在院子里玩耍、嬉戏。春去秋来，日子就像围墙边的那颗冬青树，平静而富有生气。
@@ -56,7 +55,7 @@
 
 黎明时分，天安门广场正在举行升旗仪式，广场上，人头涌涌。范文拓一行7人分散在人群之中。
 
-<div align="center"><img src="bird/img/IMG_1761-300x532.jpg " width=640></div>
+<div align="center"><img src="bird/img/IMG_1761-300x532.jpg " width=400></div>
 <div align="center">范文拓从小开始和母亲一起修炼法轮功。</div><p>
 
 “法轮大法好！”、“真善忍好！”呼喊声从广场的不同地方响起，此起彼伏。警车呜呜的呼啸而过；便衣警察混在人群中，眼睛盯着人们的一举一动。
