@@ -24,7 +24,7 @@
 
 <b>昆士兰学员：让更多世人了解真相</b><p>
 
-<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_03--ss.jpg" width=640></div>
+<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_03--ss.jpg" width=400></div>
 <div align="center">图4：来自昆士兰的林女士在排字现场。</div><p>
 
 来自昆士兰的周女士二零零八年移民澳洲，家族经营昆士兰一家著名企业，她表示，每次参加排字都感到非常幸福。
@@ -37,7 +37,7 @@
 
 <b>国际房地产公司女老板：修炼后看淡利益，公司更壮大</b><p>
 
-<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_04--ss.jpg" width=640></div>
+<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_04--ss.jpg" width=400></div>
 <div align="center">图4：来自昆士兰的林女士在排字现场。</div><p>
 
 来自台湾的林女士，于二零零二年开始修炼法轮功，目前在昆士兰经营一家国际性的房地产销售开发公司。
@@ -49,7 +49,7 @@
 她最后表示：“今天和来自各地的同修们到这里排字，就是让世人知道法轮大法好。”
 
 <b>新西兰大法弟子：幸福和感恩</b><p>
-<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_05--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_05--ss.jpg " width=400></div>
 <div align="center">图5：来自新西兰的韦女士。</div><p>
 韦女士来自新西兰，是一九九七年就开始修炼的老学员。她加入新西兰天国乐团至今已有十二年，去过不少国家，参加了无数场大大小小的游行。身为劝三退（退出中共党团队）的义工，也亲眼见证越来越多的中国人了解真相后，退出中共邪党，为自己选择了美好未来，她说从内心深处感到高兴和欣慰，同时也感悟到大法的威德与无量慈悲。
 
@@ -57,7 +57,7 @@
 
 回顾二十一年来大法修炼的历程，她表示，自己就像是从一个蹒跚学步的婴孩，在师父的慈悲保护下，一步一步走到今天，“在这其中，感到自己的身心不断地净化着，逐步地成熟升华着。无数次从内心深处感恩师尊的慈悲救度，用尽人类的语言都无法表述对师尊的感恩。”她说。
 
-<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_06--ss.jpg" width=640></div>
+<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_06--ss.jpg" width=400></div>
 <div align="center">图6：来自新西兰的赵女士。</div><p>
 
 同样来自新西兰的赵女士，修炼之前各种疾病缠身：中耳炎、颈椎病、中枢神经炎、胃溃疡、胆囊炎、胆结石、失眠症等，长年以药罐子相伴。一九九五年被病魔折磨得生活不能自理，身体非常虚弱，最后瘫痪在床上一年多。重病期间去过很多的大医院找专家就诊，所有现代最先进的仪器也没查出病因。中医，西医，针疚，中药都试过，没有任何效果。那时的她，整天躺在床上每分每秒都在病痛中挣扎，在与死亡抗争。看到多方求医无望，曾经有过轻生的念头。
