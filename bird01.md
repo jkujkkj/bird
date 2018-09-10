@@ -24,7 +24,7 @@
 
 <b>昆士兰学员：让更多世人了解真相</b><p>
 
-<div align="center"><img src="bird/img/ 2018-9-8-sydney-paizi_03--ss.jpg" width=640></div>
+<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_03--ss.jpg" width=640></div>
 <div align="center">图4：来自昆士兰的林女士在排字现场。</div><p>
 
 来自昆士兰的周女士二零零八年移民澳洲，家族经营昆士兰一家著名企业，她表示，每次参加排字都感到非常幸福。
@@ -49,7 +49,7 @@
 她最后表示：“今天和来自各地的同修们到这里排字，就是让世人知道法轮大法好。”
 
 <b>新西兰大法弟子：幸福和感恩</b><p>
-<div align="center"><img src="bird/img/ 2018-9-8-sydney-paizi_05--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2018-9-8-sydney-paizi_05--ss.jpg " width=640></div>
 <div align="center">图5：来自新西兰的韦女士。</div><p>
 韦女士来自新西兰，是一九九七年就开始修炼的老学员。她加入新西兰天国乐团至今已有十二年，去过不少国家，参加了无数场大大小小的游行。身为劝三退（退出中共党团队）的义工，也亲眼见证越来越多的中国人了解真相后，退出中共邪党，为自己选择了美好未来，她说从内心深处感到高兴和欣慰，同时也感悟到大法的威德与无量慈悲。
 
