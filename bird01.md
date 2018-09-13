@@ -32,7 +32,7 @@
 
 从那时起，得益于修炼，他的人生开始了新的启程。
 
-<div align="center"><img src="bird/img/ 26c81600e239b0195af965c320f77f26-600x900.jpg " width=640></div>
+<div align="center"><img src="bird/img/26c81600e239b0195af965c320f77f26-600x900.jpg " width=640></div>
 <div align="center">辛相教正在炼法轮功第五套功法。</div><p>
 
 <b>成功戒掉烟酒</b><p> 
@@ -51,7 +51,7 @@
 
 既可以为了他人，将自己的生死置之度外，又可以勇敢地直面世事的无常，这可说是消防员的精神了。
 
-<div align="center"><img src="bird/img/ d355d4e5e47b3773d3eb4744a8205d12-600x400.jpg " width=640></div>
+<div align="center"><img src="bird/img/d355d4e5e47b3773d3eb4744a8205d12-600x400.jpg " width=640></div>
 <div align="center">辛相教在阅读法轮功相关书籍。</div><p>
 
 <b>团队协作</b><p> 
