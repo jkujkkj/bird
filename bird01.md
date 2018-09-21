@@ -2,6 +2,9 @@
 
 <IMG SRC="bird/img/0918.jpg" width=880></p>
 
+<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
+<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
+
 <hr>
 
 <h1 align="center"><b>中秋泪</b></h1>
@@ -46,9 +49,6 @@
 看着这些令人痛心的数字，看着法轮功学员因追求信仰而遭受的悲惨遭遇，纵是铁石心肠的人也会掉泪。在这个世界上他们是最好的人，他们有什么错？对这个国家、社会、家庭有什么不是？该如此打压迫害他们？这场惨无人道的迫害凸显了中共的流氓本性和邪恶本质，难道还不应该解体灭亡它吗？共产邪灵存在一天，迫害就会存在一天，因为祸乱人间、毁灭人类是它的终极目的。现在中共不但迫害法轮功，对为法轮功主持公道的维权律师也打压迫害……如此残害人类的暴政能让其继续存在下去吗？如此危害人类的邪恶政权还不应该清除它吗？
 
 中秋节是中国传统中阖家团圆的日子，在法轮功学员中有多少家庭已经被中共迫害得支离破碎、妻离子散、家破人亡，再也无法团圆？逢年过节伴随着他们的只有无尽的悲伤和泪水。这场惨无人道的迫害已经持续了近二十年，仍在持续恶化！呼吁国际社会及所有尚存人类良知与正义的中国人，关注迫害，尽快结束迫害，让苦难的中华民族不再遭受中共邪灵的蹂躏和践踏！让所有的法轮功学员及遭受中共打压迫害的人们能够过上一个平安、团圆的日子。
-
-<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
-<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
 <hr>
 
