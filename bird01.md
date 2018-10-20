@@ -11,7 +11,7 @@
 
 <h1 align="center"><b>「彼岸」是「故乡」 「秋分」登归途</b></h1>
 
-<div align="center"><img src="bird/Fotolia_73998771_Subscription_L-600x400.jpg" width=400></div>
+<div align="center"><img src="bird/img/Fotolia_73998771_Subscription_L-600x400.jpg" width=640></div>
 <div align="center">秋分之后，河湖的水开始减少，万物开始收藏。</div><p>
  
 这一天之后，河湖的水开始减少，也听不到隆隆的雷声，小虫藏入穴中，渐渐用细土封堵洞口做冬眠准备，万物开始收藏。
