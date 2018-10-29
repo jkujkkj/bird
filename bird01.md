@@ -9,7 +9,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>法国女博士找到了人生中的新答案</b></h1>
@@ -50,7 +49,7 @@
 
 【希望之声2018年10月2日】（本台记者周扬采访报导）9月27日至30日，在捷克首都布拉格举行了大规模的法轮大法活动，德国、法国、英国、比利时、捷克、斯洛伐克、美国、加拿大、以色列、越南等三十多个国家的法轮功学员聚集在这里，和平抗议中共19年来对法轮功的残酷迫害。来自芬兰的法轮功学员刘玉梅讲述了自己和家人在大陆遭受迫害的经历，中共国殇日期间，她呼吁国际社会关注中国正在发生的人权灾难。
 
-<div align="center"><img src="bird/img/ img-3431assmartobject-1-.jpg" width=640></div>
+<div align="center"><img src="bird/img/-3431assmartobject-1-.jpg" width=640></div>
 <div align="center">在布拉格游行中祭奠被迫害致死的法轮功学员。</div><p>
 
 刘玉梅曾经是辽宁省抚顺石油企业的中层领导干部，行政一把手，在工作上受到重视，并受人尊敬。但是长期以来，胃溃疡、类风湿、心脏病、眩晕等多种疾病折磨着她，身体上和精神上都承受着很大的痛苦，不得不以药为伴。1997年11月，她了解了法轮功，并开始走入修炼。四十天后，所有的疾病不翼而飞，无病一身轻，走路生风。发生在她身上的这种神奇变化，也带动了她的亲戚、同事、朋友等几十人走入了大法的修炼，共同体验和见证法轮功于国于民有百利而无一害的美好。
