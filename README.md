@@ -1,6 +1,6 @@
-<div align="center"><IMG SRC="GCC/img-2/ntdtvflower.jpg" width=800><br>
+<IMG SRC="bird/img/1030.jpg" width=880></p>
 
-新唐人视频 http://111.241.99.25</div>
+<div align=center>http://111.241.99.25</div>
 
 <hr>
 <h1><b><a href="https://git.io/zbdodo">热门 三退大潮 觉醒之路</a></b></h1>
