@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/0706.jpg" width=880></p>
+<div align=center>http://111.241.99.25</div>
 
 <a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
 
