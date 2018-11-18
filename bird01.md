@@ -9,12 +9,11 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>绝处逢生 韩国公司社长见证两个奇迹</b></h1>
 
-<div align="center"><img src="bird/img/ 1175-600x400.jpg" width=640></div>
+<div align="center"><img src="bird/img/1175-600x400.jpg" width=640></div>
 <div align="center">李重天利用周末休息时间，风雨无阻地到中国游客常去之地韩国南山下的韩屋村摆放真相展板讲真相。</div><p>
 
 今年59岁的李重天说，在过去的34年里，他长期连续工作，从来没有旷过工，哪怕因为工作压力彻夜未眠，他都不敢缺勤。
