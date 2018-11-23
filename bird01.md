@@ -9,6 +9,30 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
+
+<hr>
+
+<h1 align="center"><b>捷克参议院就停止迫害法轮功举行公开听证会</b></h1>
+
+【明慧网二零一八年十一月二十二日】捷克国会参议院于二零一八年十一月十九日，在瓦尔茨特荫宫馆（Valdštejnsky palác）扎翰（Zahán）沙龙举行了公众听证会，呼吁中国政权终止对法轮功学员的种族灭绝行为。此次听证会是继今年四月由捷克法轮功学会转交给捷克参议院的近四万人签名的请愿书之后，参议员哈露派克（Chaloupek）提议召开的听证会，这次听证会是建议捷克共和国国会参议院起草决议案文本的初级程序。
+
+<div align="center"><img src="bird/img/2018-11-21-czech-congress_01--ss.jpg" width=640></div>
+<div align="center">图1：捷克国会参议院在瓦尔茨特荫宫馆（Valdštejnsky palác）扎翰（ Zahán）沙龙举行了公众听证会</div><p>
+
+受到邀请的有法轮功学员代表、从事调查盗窃人体器官的工作人员、媒体、经济分析师、捷克赫尔辛基委员会成员、外交部的代表出席了听证会。调查员美国记者、《屠宰》（The Slaughter）一书的作者，《血腥大屠杀调查报告》的合著者伊森•葛特曼（Ethan Gutmann）呈递了他在中国（中共）对法轮功学员遭受迫害的调研报告，尤其是对抢劫器官问题的调研结果。出席听证会作证的还有追查迫害法轮功国际组织的王海燕女士。
+
+<div align="center"><img src="bird/img/2018-11-21-czech-congress_02--ss.jpg" width=640></div>
+<div align="center">图2：调查员和记者伊森•葛特曼（Ethan Gutmann）</div><p>
+
+<div align="center"><img src="bird/img/2018-11-21-czech-congress_03--ss.jpg" width=640></div>
+<div align="center">图3：亲身遭受迫害和酷刑的刘玉梅女士（左）和“追查国际”代表王海燕（右）。</div><p>
+亲身遭受迫害和酷刑的刘玉梅女士向参议院提供了个人证词。捷克法轮功学员的米兰•卡伊奈克（Milan Kajínek）提供了关于中国早期镇压法轮功的真相，和目前的信息；然后是布拉格查理大学远东研究所（Sinopsis）的卡特史娜 •普罗哈兹考娃（Kateřina Procházková）和安娜•扎德拉珀娃（Anna Zádrapová）发言，她们强调指出，中国对人权问题意识低下，并谈及到中国其他受迫害的公民群体问题。财经顾问和分析师卢克石•库德拉切克（Lukáš Kudláček）就各国（对中国）在人权方面的作为与中国在这些国家投资之间的关系问题作了经济分析。捷克赫尔辛基委员会成员露西•丽勃娃（Lucie Rybová）和莫妮卡•史姆恩考娃（Monika Šimůnková）先后发言表示支持决议草案。
+
+对中国圈有影响力的捷克前文化部长丹尼尔•赫尔曼（Daniela Hermana）在听证会上谈了他的体会。在关心听证会的来宾当中，还有参议员马列克•黑晒尔（Marek Hilšer），医学伦理学家和哲学家扬•佩恩（Jan Payne）以及活动家扬.史纳各尔（Jan Šinágl）。代表外交部的卢卡克•卡武茨基（Lukáš Kaucký）博士向全体会议保证，欧洲对中国人权要进行施压。
+
+<div align="center"><img src="bird/img/2018-11-21-czech-congress_04--ss.jpg" width=640></div>
+<div align="center">图4：左起：捷克前文化部长丹尼尔•赫尔曼（Daniel Herman），捷克赫尔辛基委员会成员露西•丽勃娃（Lucie Rybová）和莫妮卡•史姆恩考娃（Monika Šimůnková）及记者卡特史娜•普罗哈兹考娃（Kateřina Procházková）</div><p>
+
 <hr>
 
 <h1 align="center"><b>绝处逢生 韩国公司社长见证两个奇迹</b></h1>
