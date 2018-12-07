@@ -9,7 +9,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>华府法轮功学员在美国会揭露中共迫害　多国政要声援</b></h1>
@@ -25,14 +24,14 @@
 <b>法轮功学员揭露中共迫害</b><p> 
 “中共邪党对‘真善忍’正信的打压，对好人的迫害，造成我们家破人亡。”来自中国辽宁省大连市的杨春华女士在美国国会举办的研讨会上讲述了过去十九年来，她和家人因坚持信仰，遭到中共的残酷迫害，她的姐姐、父亲和母亲在中共的迫害下相继含冤离世，原本一个美满幸福的四口之家，如今只剩她一人。
 
-<div align="center"><img src="bird/img/ 2018-12-5-us-house-of-representatives-forum_03--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/ 2018-12-5-us-house-of-representatives-forum_03--ss.jpg" width=640></div>
 <div align="center">图3：山东省著名的书法家刘锡铜先生在研讨会上讲述他在中国被非法关押期间遭受的酷刑折磨。</div><p>
 
 刘锡铜先生曾是山东省著名的书法家。“江氏流氓集团迫害法轮功以后，我先后二十多次被关押迫害，其中三年被非法劳教，四年非法判刑”，“他们剥掉我的上衣，往我的背上撒盐浇水，再用板子刮！接下来是生殖器上刷辣椒水、针刺手指、脚趾，香烟烫皮肉、打火机烧身体、眼球上抹风油精，众犯还撬开我的嘴将两杯毒药灌下去，导致我神志不清。”刘锡铜讲述了他在中国被非法关押期间遭受的酷刑折磨。
 
 今年十七岁的徐鑫洋和妈妈迟丽华在美国国会展示了一幅她的爸爸徐大为被中共迫害得瘦骨嶙峋、满身伤痕、奄奄一息的照片。徐鑫洋说，爸爸徐大为因为不放弃“真善忍”信仰，被转押四个监狱迫害，被关押了整整八年，他被迫害得遍体鳞伤，回家十三天后离开了人世。
 
-<div align="center"><img src="bird/img/ 2018-12-5-us-house-of-representatives-forum_04--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/ 2018-12-5-us-house-of-representatives-forum_04--ss.jpg" width=640></div>
 <div align="center">图4：今年十七岁的徐鑫洋和妈妈迟丽华在美国国会展示了一幅她的爸爸徐大为被中共迫害得瘦骨嶙峋、满身伤痕、奄奄一息的照片。</div><p>
 
 徐鑫洋呼吁人们关注仍在中国发生的这场迫害：“这场残酷迫害还没有结束，在中国还有很多和我一样遭遇的孩子，他们没有我这样的幸运逃亡到美国。我希望更多的人站在正义一边，帮助结束这场不公的、长达十九年的迫害。”
@@ -40,7 +39,7 @@
 华盛顿DC法轮大法学会发言人、美国太空总署资深工程师黄祖威在研讨会上说，据不完全统计，一九九九年“七二零”以来，通过民间途径能够传出消息的已有四千二百五十八名法轮功学员被迫害致死。这场迫害已经持续了十九年，二零一八年十一月，中共对至少三十一名法轮功学员非法判刑。
 
 <b>国会议员：法轮功学员的非凡勇气带给人希望</b><p> 
-<div align="center"><img src="bird/img/ 2018-12-5-us-house-of-representatives-forum_05--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/ 2018-12-5-us-house-of-representatives-forum_05--ss.jpg" width=640></div>
 <div align="center">图5：美国国会众议员罗拉巴克（Rep. Dana Rohrabacher）在研讨会上说，法轮功学员的勇气总是带给他希望。</div><p>
 
 美国国会众议员达纳•罗拉巴克（Rep. Dana Rohrabacher）对研讨会现场的法轮功学员说：“你们的勇气总是给我以希望。每年参加法轮功学员在国会山的大集会时，我都会感到深受鼓舞。”
@@ -54,6 +53,7 @@
 美国国会资深众议员克里斯托弗•史密斯（Rep. Christopher Smith）在书面声明中表示，作为众议院外交委员会人权小组委委员会主席，他深知中国人权的恶劣状况。他在声明中指出：“在十九年的迫害中，中共为逼迫法轮功修炼者放弃信仰，对他们进行了的非法拘捕、监禁、折磨，甚至虐杀。”
 
 史密斯表示，“对于法轮功修炼者及中国民众遭遇的人权暴行，我们绝不能坐视不理，必须将行凶者绳之以法。”
+
 <div align="center"><img src="bird/img/2018-12-5-us-house-of-representatives-forum_06--ss.jpg" width=640></div>
 <div align="center">图6：华盛顿世界政治研究院院长兰可斯基博士（John Lenczowski）说，法轮功学员具有惊人的勇气。</div><p>
 
