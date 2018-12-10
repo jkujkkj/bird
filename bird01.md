@@ -9,7 +9,6 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>洛杉矶法轮功学员声援3.2亿中国人三退</b></h1>
@@ -24,8 +23,6 @@
 <div align="center"><img src="bird/2018-12-6-la-support-santui_03--ss.jpg" width=640></div><p>
 
 <div align="center"><img src="bird/img/2018-12-6-la-support-santui_04--ss.jpg" width=640></div><p>
-
-<div align="center"><img src="bird/img/2018-12-6-la-support-santui_05--ss.jpg" width=640></div><p>
 
 <div align="center"><img src="bird/img/2018-12-6-la-support-santui_05--ss.jpg" width=640></div>
 <div align="center">图2～6：随后，法轮功学员在华人聚居的圣盖博市（City of San Gabreil）山谷大道（Valley Blvd.）筑起“真相长城”，吸引过往车辆和民众的目光。</div><p>
