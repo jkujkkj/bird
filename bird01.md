@@ -9,6 +9,17 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
+<IMG SRC="bird/img/1-25.png" width=880></p>
+
+<div align="center"><IMG SRC="true/img-2/1-25.png" width=800>
+<h3> 大陆</h3>
+12/24/2018	Monday	首播	20:00<br>
+12/25/2018	Tuesday	重播	10:00<br>
+12/25/2018	Tuesday	重播	17:00<br>
+12/31/2018	Monday	首播	13:00<br>
+12/31/2018	Monday	重播	20:30
+<h3>【预告】新唐人将独家播出2017神韵交响乐 https://git.io/dici</h3></div>
+
 <hr>
 
 <h1 align="center"><b>南澳各界吁制止中共反人类罪行</b></h1>
