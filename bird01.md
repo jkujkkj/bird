@@ -11,7 +11,6 @@
 
 <IMG SRC="bird/img/1-25.png" width=880></p>
 
-<div align="center"><IMG SRC="true/img-2/1-25.png" width=800>
 <h3> 大陆</h3>
 12/24/2018	Monday	首播	20:00<br>
 12/25/2018	Tuesday	重播	10:00<br>
