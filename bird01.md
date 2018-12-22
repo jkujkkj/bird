@@ -10,7 +10,6 @@
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
 <IMG SRC="bird/img/1-25.png" width=880></p>
-
 <h3> 大陆</h3>
 12/24/2018	Monday	首播	20:00<br>
 12/25/2018	Tuesday	重播	10:00<br>
