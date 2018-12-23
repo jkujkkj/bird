@@ -70,7 +70,7 @@ http://220.141.121.162</h3></div>
 
 定期就医直到五十三岁，他备感绝望，但不想坐以待毙，因此重拾气功，结果吓坏了中医师，急忙纠正说：“练气功是补经脉，你身体极虚，虚不纳补，不能练。”这下他彻底绝望了。
  
- <div align="center"><img src="bird/2018-12-19-taiwan-huangshikun_04-600x485.jpg" width=640></div>
+ <div align="center"><img src="bird/img/2018-12-19-taiwan-huangshikun_04-600x485.jpg" width=640></div>
 <div align="center">从跨国企业年兴纺织退休之后，黄士坤受聘在大学授课，并且自营新技公司。</div><p>
 
 <b>漆黑中的救命明灯</b><p>
