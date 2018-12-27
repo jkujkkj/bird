@@ -1,7 +1,6 @@
 <IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
 
-<div align=center>8:02 AM
-http://220.141.121.162</div>
+<div align=center>http://220.141.121.202</div>
 
 <hr>
 <h1><b><a href="https://git.io/zbdodo">热门 三退大潮 觉醒之路</a></b></h1>
