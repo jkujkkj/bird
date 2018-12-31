@@ -73,7 +73,7 @@ http://220.141.121.202</h3></div>
 【明慧网二零一八年十二月二十五日】（明慧墨尔本记者站报道）位于墨尔本市中心的菲兹洛伊公园（Fitzroy Gardens），拥有浓厚的英国乡村风格以及著名的景点“库克船长的小屋”，是各国游客特别是中国大陆观光客必到的景点之一。圣诞新年期间，时值南半球的盛夏时节，菲兹洛伊公园里更是游人如织。法轮功学员在这里设立的资料点，十八年来成为大陆有缘人了解法轮功反迫害的真相、选择退出中共党、团、队（三退）的窗口。
 
 <div align="center"><img src="bird/img/2018-12-24-australia-melbourne_01--ss.jpg" width=640></div>
-<div align="center">XXX</div><p>
+</div><p>
 
 <div align="center"><img src="bird/img/2018-12-24-australia-melbourne_02--ss.jpg" width=640></div>
 <div align="center">图1～2：游客在阅读真相展板的内容。</div><p>
