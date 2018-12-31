@@ -2,7 +2,7 @@
 
 <a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/1228.jpg" width=880></p>
+<IMG SRC="bird/img/0101.jpg" width=880></p>
 
 <h3><div align=center>
 http://61.228.116.228</h3></div>
