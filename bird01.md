@@ -1,5 +1,3 @@
-
-
 <a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
 <IMG SRC="bird/img/0113.jpg" width=880></p>
@@ -10,9 +8,11 @@ http://220.141.124.111</h3></div>
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
-
+<a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
+<h1 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird03.md"><b>看更多bird03.md</a></b></h1>
+<h1 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird02.md"><b>看更多bird02.md</a></b></h1>
+  
 <h1 align="center"><b>伪火十八年　造假害中国</b></h1>
 
 【明慧网二零一九年一月十三日】一九九九年七月二十日中共与江氏集团动用整部国家机器迫害法轮功，为了实行“肉体上消灭、经济上搞垮、名誉上搞臭”的灭绝政策，不断制造“假新闻”，编造一连串自焚、杀人与敛财等弥天谎言，企图激发民众对法轮功的仇恨。这些“假新闻”中，荼毒世人最严重者，莫过于二零零一年一月二十三日炮制的“天安门自焚事件”，意图诬蔑陷害法轮功，以所谓的五人“自焚”谎言欺骗海内外民众。
