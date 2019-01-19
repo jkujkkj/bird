@@ -8,6 +8,33 @@ http://36.227.100.96</h3></div>
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
+
+<hr>
+
+<h1 align="center"><b>芬兰坦佩雷市健康展　法轮功受欢迎</b></h1>
+
+【明慧网二零一九年一月十八日】芬兰法轮大法学会应邀参加了二零一九年一月十二日至十三日在坦佩雷市举办的VIRE健康展会。简单易学的五套功法和真、善、忍修炼原则吸引了很多民众前来了解与尝试功法。
+
+人们得知中共对法轮功这个修炼群体迫害的消息感到非常震惊，表示非常难以理解为什么这么平和的功法，并按照真善忍做好人，却被中共不容，遭受打压。
+
+<div align="center"><img src="bird/img/2019-1-17-finland-tampere_01--ss.jpg" width=640></div>
+<div align="center">图1：芬兰坦佩雷市健康展上，民众在展位前了解关于法轮功的详情。</div><p>
+
+<div align="center"><img src="bird/img/2019-1-17-finland-tampere_02--ss.jpg" width=640></div><p>
+
+<div align="center"><img src="bird/img/2019-1-17-finland-tampere_03--ss.jpg" width=640></div>
+<div align="center">图2～3：芬兰坦佩雷市健康展上，民众学炼法轮功</div><p>
+
+一对夫妇在展位前停住脚步，当听到迫害事实时，妻子说她曾在中国居住五年，知道在中国各种对人权的迫害非常严重。他们在呼吁停止迫害的征签本上签名，并希望法轮功学员得到更多的签名，早日制止这场迫害。
+
+一位年轻人之前对气功很感兴趣。他跟学员深入交谈后想购买《转法轮》书籍。
+
+一对夫妇带着小孩经过展位时对功法非常感兴趣，并表示这功法对他们很重要。学员当场教功。临走时，他们非常高兴地带走各种真相资料和精致的手折莲花。
+
+Aslak跟学员长时间的交谈。他一直在寻找内心的平和，并对法轮功非常感兴趣。他当即购买了《转法轮》一书，想深入了解。
+
+功法展示吸引了很多民众的关注。很多人询问当地炼功点的信息，获取相关的联系方式和更多的资料。有些人在展位上当即学炼功法，并表示感受到很强的能量。
+
 <hr>
 
 <h1 align="center"><b>古代诗人的修炼故事</b></h1>
