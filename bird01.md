@@ -8,7 +8,6 @@ http://220.141.131.76</h3></div>
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-
 <hr>
 
 <h1 align="center"><b>中国朋友你们好！</b></h1>
@@ -80,7 +79,7 @@ http://220.141.131.76</h3></div>
 “觉得很幸运，我有师父。”她说，“真的非常感激师父、感激法轮大法保护我们全家。”
 
 <b>发生在家人身上的奇迹</b><p> 
-<div align="center"><img src="bird/img/ 2019-1-13-melbourne-vietnamese_02--ss.jpg " width=640></div>
+<div align="center"><img src="bird/img/2019-1-13-melbourne-vietnamese_02--ss.jpg " width=640></div>
 <div align="center">图2：海蒂（左一）和部份越南裔法轮功学员合影。</div><p>
 
 类似海蒂亲历的身心巨变和神奇的修炼体会，同样发生在她的亲人身上。现在家族中有八人先后走入法轮大法修炼。
