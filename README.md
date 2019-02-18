@@ -3,13 +3,10 @@
 
 <div align=center>https://git.io/sss</div>
 <div align=center>https://git.io/ict</div>
-<div align=center>http://sy.epub.vin/sy</div>
-
-
 
 <IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
 
-<div align=center>http://220.141.139.204/</div>
+<div align=center>http://111.241.93.196/</div>
 
 <hr>
 <h1><b><a href="https://git.io/zbdodo">热门 三退大潮 觉醒之路</a></b></h1>
