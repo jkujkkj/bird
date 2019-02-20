@@ -1,8 +1,4 @@
 
-<IMG SRC="bird/img/aa1.jpg" width=800></p>
-
-<div align=center>https://git.io/sss</div>
-<div align=center>https://git.io/ict</div>
 
 <IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
 
