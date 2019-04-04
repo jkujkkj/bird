@@ -10,7 +10,7 @@
 <hr>
 
 <h1 align="center"><b>追寻真理者无畏</b></h1>
-<div align="center"><img src="bird/img/ FalunDafaHao.jpg" width=640></div><p>
+<div align="center"><img src="bird/img/FalunDafaHao.jpg" width=640></div><p>
 
 从小我一直在追寻着生命的意义和宇宙的真理。就读北京大学后，一有空我就会到图书馆里，去了解各种文化。但一直没有找到我想要的真理。 
 
