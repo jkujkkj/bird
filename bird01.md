@@ -8,8 +8,10 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
-守护心中的文明之光
-ttps://www.epochweekly.com/b5/578/18137.htm
+<hr>
+
+<h1 align="center"><b>守护心中的文明之光</b></h1>
+
 人类经过数千年的演化，才达到如今的程度，我们称之为「文明」社会。如何检视我们的文明？却始终考验这个星球上包括香港人在内的所有智慧生命。放眼世界，人类仍然为了利益尔虞我诈，有时候，也仍然为了眼前的食物厮杀得血肉模糊。但终究这类争夺或者厮杀，有了一些共同的默契和规则，形成了法制，多了一些理解和包容，然后才有了进步。但文明的步伐永远都会受到挑战，那些随心所欲的肆虐，任意妄为的野蛮行为，在挑战文明和进步。
 
 过去半年多来，香港发生了许许多多这类的挑战。然而，其中最令人不齿和鄙夷的，却是那些置人类之间基本尊重而不顾的行为。
