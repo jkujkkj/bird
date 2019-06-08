@@ -3,6 +3,11 @@
 
 <IMG SRC="bird/img/0605.jpg" width=880></p>
 
+<h3><div align=center>http://111.240.64.57</h3></div>
+
+<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
+<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
+
 <hr>
 
 <h1 align="center"><b>欢迎举报江泽民等人权恶棍美国资产</b></h1>
@@ -71,11 +76,6 @@ https://luntan.epochtimes.com/tougao/gb/index.php
 几位观众看到队伍走过来，互相询问什么是法轮大法？学员告诉他们：法轮大法源于中国古代，是一种性命双修的功法，有一亿人通过修炼法轮大法达到了身心健康。他们听了以后都很高兴，得知在中国大陆的法轮功学员遭到了中共的残酷迫害，甚至被中共活摘器官，他们感到非常震惊。其中一位说，这怎么能行？！必须停止啊！他们表示要上网了解更多真相。
 
 当晚福克斯（Fox12）电视台对游行进行了现场直播，沿途还设有多个解说台，主持人向观众介绍，法轮大法是按照“真、善、忍”宇宙准则的传统修炼方法，福益全球各民族上亿人。法轮功适合所有年龄，免费教功，一切信息都可在网上查询：www.falundafa.org。
-
-<h3><div align=center>http://111.240.64.57</h3></div>
-
-<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
-<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
 <hr>
 
