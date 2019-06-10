@@ -5,6 +5,9 @@
 <div align=center>http://114.37.64.122</div>
 
 <hr>
+
+<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md</a></b></h1>
+
 <h1><b><a href="https://git.io/zbdodo">热门 三退大潮 觉醒之路</a></b></h1>
 
 <h1><b><a href="https://git.io/3f">手机上好看的电子书（ePub版）</a></b></h1>
