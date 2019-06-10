@@ -2,7 +2,7 @@
 
 <IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
 
-<div align=center>http://111.240.64.57</div>
+<div align=center>http://114.37.64.122</div>
 
 <hr>
 <h1><b><a href="https://git.io/zbdodo">热门 三退大潮 觉醒之路</a></b></h1>
