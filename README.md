@@ -6,7 +6,7 @@
 
 <hr>
 
-<h1><b><a href="https://git.io/forfor">紅潮即將傾覆  天之將明</a></b></h1>
+<h1><b><a href="https://git.io/Ffor">紅潮即將傾覆  天之將明</a></b></h1>
 
 <h1><b><a href="https://git.io/zbdodo">热门 三退大潮 觉醒之路</a></b></h1>
 
