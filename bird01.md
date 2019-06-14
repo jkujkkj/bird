@@ -1,9 +1,9 @@
 
 <div align="center"><a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/0610.jpg" width=880></p>
+<IMG SRC="bird/img/0614.jpg" width=880></p>
 
-<h3>http://114.37.64.122</h3>
+<h3>http://118.161.138.80</h3>
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
