@@ -2,7 +2,7 @@
 
 <IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
 
-<div align=center>http://114.37.64.122</div>
+<div align=center>http://118.161.138.80</div>
 
 <hr>
 
