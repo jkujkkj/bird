@@ -20,7 +20,7 @@
 
 <h1><b><a href="https://git.io/wnn">小之分享</a></b></h1>
 
-<h1><b><a href="https://git.io/birdf">真相分享</a></b></h1>
+<h1><b><a href="https://git.io/birdf">明真相能保命</a></b></h1>
 
 <h1><b><a href="https://git.io/02">法轮大法好真相</a></b></h1>
 
