@@ -1,3 +1,4 @@
+<IMG SRC="bird/img/明真相能保命.jpg" width=880></p>
 
 <div align="center"><a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
