@@ -4,7 +4,7 @@
 
 <IMG SRC="bird/img/圖片 20.jpg" width=880></p>
 
-<h3>http://114.43.35.116</h3>
+<h3>http://118.161.140.196</h3>
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
