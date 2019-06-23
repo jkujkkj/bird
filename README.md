@@ -2,7 +2,7 @@
 
 <IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
 
-<div align=center>http://114.43.35.116</div>
+<div align=center>http://118.161.140.196</div>
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h1></div>
 
