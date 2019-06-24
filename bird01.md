@@ -12,7 +12,7 @@
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird02.md"><b>明真相能保命(一)</a></b></h2>
 
-<h2 align="center"><a href=" https://github.com/jkujkkj/bird/blob/master/bird03.md"><b>明真相能保命(二)</a></b></h2>
+<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird03.md"><b>明真相能保命(二)</a></b></h2>
 
 <hr>
 
