@@ -2,7 +2,7 @@
 
 <div align="center"><a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
-<IMG SRC="bird/img/圖片 20.jpg" width=880></p>
+<IMG SRC="bird/img/圖片 21.jpg" width=880></p>
 
 <h3>http://114.37.31.230</h3>
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
