@@ -1,15 +1,15 @@
 <IMG SRC="bird/img/2019-0625.jpg" width=880></p>
 
-<div align="center"><IMG SRC="wnn/img/84314_2001280_8.jpg" width=600></div><p>
+<div align="center"><IMG SRC="wnn/img/123456.jpg" width=600></div><p>
 <div align=center><b>突破封锁看世界 分享翻墙工具 请先下载软件 https://git.io/ffq</b></div>
 
-<div align="center"><IMG SRC="wnn/img/20070405_8a5603a9391542c31d59wsnr9QNZDkwb.jpg" width=600></div><p>
+<div align="center"><IMG SRC="wnn/img/2468.jpg" width=600></div><p>
 <div align=center><b>直连不必翻墙 中国禁闻  每日更新 http://36.228.37.21/</b></div>
 
-<div align="center"><IMG SRC="wnn/img/20070405_8a5603a9391542c31d59wsnr9QNZDkwb.jpg" width=600></div><p>
+<div align="center"><IMG SRC="wnn/img/2468.jpg" width=600></div><p>
 <div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
 
-<div align="center"><IMG SRC="wnn/img/20070405_8a5603a9391542c31d59wsnr9QNZDkwb.jpg" width=600></div><p>
+<div align="center"><IMG SRC="wnn/img/2468.jpg" width=600></div><p>
 <div align=center><b>生命的抉择 稍纵即逝的良机！…你想知道的都在这里https://git.io/01</b></div>
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
