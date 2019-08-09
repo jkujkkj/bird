@@ -1,12 +1,17 @@
 <IMG SRC="bird/img/2019-0625.jpg" width=880></p>
 
-
-<div align="center"><IMG SRC="wnn/img/2468.jpg" width=800></div><p>
+<IMG SRC="bird/img/2468.jpg" width=800></p>
 <div align=center><b>突破封锁看世界 分享翻墙工具 请先下载软件 https://git.io/ffq</b></div>
+
+<hr>
 
 <div align=center><b>直连不必翻墙 中国禁闻  每日更新 http://36.228.37.21/</b></div>
 
+<hr>
+
 <div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
+
+<hr>
 
 <div align=center><b>生命的抉择 稍纵即逝的良机！…你想知道的都在这里https://git.io/01</b></div>
 
