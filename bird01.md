@@ -1,6 +1,7 @@
 <IMG SRC="bird/img/2019-0625.jpg" width=880></p>
 
-<IMG SRC="bird/img/2468.jpg" width=500></p>
+
+<div align="center"><IMG SRC="wnn/img/2468.jpg" width=500></div><p>
 <div align=center><b>突破封锁看世界 分享翻墙工具 请先下载软件 https://git.io/ffq</b></div>
 
 <IMG SRC="bird/img/123456.jpg" width=500></p>
