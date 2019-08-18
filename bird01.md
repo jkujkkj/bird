@@ -35,8 +35,7 @@
 
 【明慧网二零一九年八月十四日】美国共和党全国委员会（The Republican National Committee，RNC）八月二日全体一致通过一项决议案，谴责中共强摘法轮功学员等良心犯器官。
 
-<div align="center"><img src="bird/img/2019-8-13-organharvesting-canada.jpg" width=640></div>
-<div align="center">XXX</div><p>
+<div align="center"><img src="bird/img/2019-8-13-organharvesting-canada.jpg" width=640></div><p>
 共和党全国委员会委员、前加州共和党主席肖恩﹒斯蒂尔（Shawn Steel）是这一决议案的发起人。斯蒂尔在接受英文新唐人记者霍莉﹒凯勒姆（Holly Kellum）专访时表示，希望全世界了解中共强摘人体器官的行径，他说，「我们希望这个世界了解这个持续的人权问题。」「这是世界历史上最邪恶的行径之一。」
 
 斯蒂尔介绍，他第一次听说中共强摘器官的事情是几年前在芬兰首都赫尔辛基（Helsinki）旅行的时候，但是他当时并不相信。
