@@ -1,9 +1,9 @@
 
 
-<div align="center"><IMG SRC="GCC/img-2/ntdtvflower.jpg" width=800>
+<div align="center"><IMG SRC="GCC/img-2/hht9tu.jpg" width=800>
 <h3>新唐人视频 http://220.141.137.109</h3></div>
- 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+  
+<div align="center"><IMG SRC="GCC/img/y43tt.jpg" width=580></div></p>
   <div align=center>
 <h2><b><a href="https://git.io/ffq">● 免费突破封锁翻墙软件 ● </a></b></h2></div>
 <div align=center>
