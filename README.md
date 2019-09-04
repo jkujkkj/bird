@@ -1,6 +1,6 @@
 
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/hht9tu.jpg" width=580></div></p>
 <h3>新唐人视频 http://220.141.137.109</h3></div>
  
 <div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
@@ -24,6 +24,7 @@
 </table>
 
 <div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
+
 <table>
 <tr><td width=900 ><h3><b><a href="https://github.com/bcdz/true01/blob/master/foryou.md">➤ 为何要退出共产党、共青团、少先队？</a></b></h3>
 </tr>
