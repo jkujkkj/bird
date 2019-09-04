@@ -4,56 +4,61 @@
 
 <div align=center>http://220.141.137.109</div>
 
- <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h1> 
-</div>
+<h3>新唐人视频 http://220.141.137.109</h3></div>
+ 
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+  <div align=center>
+<h2><b><a href="https://git.io/ffq">● 免费突破封锁翻墙软件 ● </a></b></h2></div>
+<div align=center>
+<h2><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 <table>
+ 
+<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻</a></b></h3></tr>
+</td>
 <tr><td width=900><h3><b><a href="https://git.io/n99">➤ 热门時事、评论</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/wnn">➤ 小之分享</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/birdf">➤ 明真相能保命</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://git.io/birdf">➤  明真相能保命</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻</a></b></h3></tr>
-</td>
-
 </table>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
-
-
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 <table>
-<tr><td width=900 ><h3><b><a href="https://git.io/zb">➤ 热门 三退大潮 觉醒之路</a></b></h3>
+<tr><td width=900 ><h3><b><a href="https://github.com/bcdz/true01/blob/master/foryou.md">➤ 为何要退出共产党、共青团、少先队？</a></b></h3>
 </tr>
-</td>
-<tr><td width=900><h3><b><a href="https://github.com/bcdz/true0101/blob/master/msos.md">➤ 上天在救人 你看懂了吗?</a></b></h3>
-</tr>
-</td>
+</td> 
 <tr><td width=900 ><h3><b><a href="https://git.io/kkssos">➤ 九评引发三退大潮 如何三退</a></b></h3>
+</tr>
+</td>
+<tr><td width=900><h3><b><a href="https://github.com/bcdz/true01/blob/master/msos.md">➤ 上天在救人 你看懂了吗?</a></b></h3>
+</tr>
+</td>
+<tr><td width=900 ><h3><b><a href="https://github.com/bcdz/true01/blob/master/dodo.md">➤热门 三退大潮 觉醒之路</a></b></h3>
+</tr>
+</td> 
+<tr><td width=900><h3><b><a href="https://github.com/bcdz/true01/blob/master/aaasfa.md">➤ 平安秘诀</a></b></h3>
+</tr>
+</td>
+<tr><td width=900><h3><b><a href="https://github.com/bcdz/true01/blob/master/bbfa.md">➤ 藏字石</a></b></h3>
 </tr>
 </td>
 <tr><td width=900 ><h3><b><a href="https://git.io/3th">➤ “三退”才能上“方舟”</a></b></h3>
 </tr>
 </td>
-<tr><td width=900 ><h3><b><a href="https://git.io/stpa">➤ 真相传单：三退与平安</a></b></h3>
-</tr>
-</td>
 <tr><td width=900><h3><b><a href="https://git.io/3w">➤ 三亿人退出中共</a></b></h3>
 </tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/zbaaas">➤ 平安秘诀</a></b></h3>
+<tr><td width=900 ><h3><b><a href="https://git.io/stpa">➤ 真相传单：三退与平安</a></b></h3>
 </tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/zaasfa">➤ 藏字石</a></b></h3>
-</tr>
-</td>
-
 </table>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 
 <table>
@@ -82,7 +87,7 @@
 
 </table>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/02">➤ 法轮大法好真相</a></b></h3></tr>
@@ -100,7 +105,7 @@
 
 </table>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://github.com/dfchunsring/drdr/blob/master/README.md">➤ 江泽民为何要迫害法轮功？</a></b></h3></tr>
@@ -115,7 +120,24 @@
 </td>
 </table>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+
+<table>
+<tr><td width=900><h3><b><a href="https://git.io/9m">➤《九评共产党》</a></b></h3></tr>
+</td>
+<tr><td width=900><h3><b><a href="https://git.io/goal">➤《共产主义的终极目的——中国篇》</a></b></h3></tr>
+</td>
+<tr><td width=900><h3><b><a href="https://git.io/goal-2">➤《魔鬼在统治着我们的世界》</a></b></h3></tr>
+</td>
+<tr><td width=900><h3><b><a href="https://github.com/goodabc/GCC/blob/master/xgpl.md">➤《共产主义的终极目的》的相关话题</a></b></h3></tr>
+</td>
+<tr><td width=900><h3><b><a href="https://github.com/no1show/show1/blob/master/gcdsy.md">➤ 评《共产党宣言》</a></b></h3></tr>
+</td>
+<tr><td width=900 ><h3><b><a href="https://github.com/no1show/show1/blob/master/whss.md">➤ 中共意识形态之理性批判</a></b></h3></tr>
+</td>
+</table>
+
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/3f">➤ 手机上好看的电子书（ePub版）</a></b></h3></tr>
@@ -126,26 +148,7 @@
 </td>
 </table>
 
-
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
-
-<table>
-<tr><td width=900><h3><b><a href="https://git.io/9m">➤《九评共产党》</a></b></h3></tr>
-</td>
-<tr><td width=900><h3><b><a href="https://git.io/goal">➤《共产主义的终极目的——中国篇》</a></b></h3></tr>
-</td>
-<tr><td width=900><h3><b><a href="https://git.io/goal-2">➤《魔鬼在统治着我们的世界》</a></b></h3></tr>
-</td>
-<tr><td width=900><h3><b><a href="https://github.com/goodabc/true01/blob/master/xgpl.md">➤《共产主义的终极目的》的相关话题</a></b></h3></tr>
-</td>
-<tr><td width=900><h3><b><a href="https://github.com/no1show/show1/blob/master/gcdsy.md">➤ 评《共产党宣言》</a></b></h3></tr>
-</td>
-<tr><td width=900 ><h3><b><a href="https://github.com/no1show/show1/blob/master/whss.md">➤ 中共意识形态之理性批判</a></b></h3></tr>
-</td>
-</table>
-
-
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/cgys">➤ 千古英雄人物</a></b></h3></tr>
@@ -157,4 +160,4 @@
 </table>
 
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
