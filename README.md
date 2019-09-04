@@ -1,6 +1,6 @@
 
 
-<div align="center"><IMG SRC="img/hht9tu.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 <h3>新唐人视频 http://220.141.137.109</h3></div>
  
 <div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
@@ -9,7 +9,7 @@
 <div align=center>
 <h2><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
  
@@ -23,8 +23,7 @@
 </td>
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
-
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 <table>
 <tr><td width=900 ><h3><b><a href="https://github.com/bcdz/true01/blob/master/foryou.md">➤ 为何要退出共产党、共青团、少先队？</a></b></h3>
 </tr>
@@ -55,7 +54,7 @@
 </td>
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 
 <table>
@@ -84,8 +83,7 @@
 
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
-
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/02">➤ 法轮大法好真相</a></b></h3></tr>
 </td>
@@ -102,7 +100,7 @@
 
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://github.com/dfchunsring/drdr/blob/master/README.md">➤ 江泽民为何要迫害法轮功？</a></b></h3></tr>
@@ -117,7 +115,7 @@
 </td>
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/9m">➤《九评共产党》</a></b></h3></tr>
@@ -134,7 +132,7 @@
 </td>
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/3f">➤ 手机上好看的电子书（ePub版）</a></b></h3></tr>
@@ -145,7 +143,7 @@
 </td>
 </table>
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
 <tr><td width=900><h3><b><a href="https://git.io/cgys">➤ 千古英雄人物</a></b></h3></tr>
@@ -157,4 +155,4 @@
 </table>
 
 
-<div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
+<div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
