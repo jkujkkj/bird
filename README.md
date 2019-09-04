@@ -1,9 +1,6 @@
 
 
-<IMG SRC="bird/img/ntdtvflower.jpg" width=880></p>
-
-<div align=center>http://220.141.137.109</div>
-
+<div align="center"><IMG SRC="GCC/img-2/ntdtvflower.jpg" width=800>
 <h3>新唐人视频 http://220.141.137.109</h3></div>
  
 <div align="center"><IMG SRC="GCC/img/fngrchn3.jpg" width=580></div></p>
