@@ -9,6 +9,8 @@
 <div align=center>
 <h2><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
 
+<table>
+
 <div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
@@ -21,11 +23,13 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/birdf">➤  明真相能保命</a></b></h3></tr>
 </td>
+
 </table>
 
 <div align="center"><IMG SRC="img/y43tt.jpg" width=580></div></p>
 
 <table>
+ 
 <tr><td width=900 ><h3><b><a href="https://github.com/bcdz/true01/blob/master/foryou.md">➤ 为何要退出共产党、共青团、少先队？</a></b></h3>
 </tr>
 </td> 
