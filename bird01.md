@@ -71,7 +71,7 @@
 
 <h1 align="center"><b>美媒：法轮功群体在戈申找到自由</b></h1>
 
-<div align="center"><img src="bird/img/ rtrtrt.jpg" width=640></div>
+<div align="center"><img src="bird/img/rtrtrt.jpg" width=640></div>
 <div align="center">日前，纽约上州一家媒体《编年史报》（The Chronicle）报导了法轮功学员在戈申地区的一个公园炼功活动，并向读者介绍了法轮功以及法轮功学员在中国遭受迫害的情况。（网页截图）</div><p>
 
 【大纪元2019年09月03日讯】（大纪元记者施萍编译报导）日前，纽约上州一家媒体《编年史报》（The Chronicle）报导了法轮功学员在戈申（Goshen）地区的一个公园炼功活动，并向读者介绍了法轮功以及法轮功学员在中国遭受迫害的情况。
