@@ -1,5 +1,5 @@
 <div align="center"><IMG SRC="bird/img/hht9tu.jpg" width=800>
-<h3>新唐人视频 http://36.228.37.50</h3></div>
+<h3>新唐人视频 http://36.227.93.70</h3></div>
  
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
   <div align=center>
