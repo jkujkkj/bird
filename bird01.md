@@ -60,8 +60,6 @@
 问世人，谁还看不厌？
 灭中共，刀横剑斩，电扫风卷。
 
-<div align="center"><img src="bird/img/XXX.jpg" width=640></div><p>
-
 人类到了最紧要的关头：
 唤正义，大步向前走！
 唤世界，伸出你的手！
