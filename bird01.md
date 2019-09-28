@@ -61,7 +61,7 @@
 
 【明慧网二零一九年九月二十六日】（明慧记者舒慧丹麦综合报导）二零一九年九月十七日，丹麦首都哥本哈根市政会议中心（Onkel Dannys Pl. 5，1700 København）召开了一场主题为《紧急行动：「中共活摘器官」关系到所有人》（Relevance, Urgency, Action）的研讨会。多位世界不同领域的专家及丹麦政界人士应邀参加会议。研讨会正值欧洲器官移植学会大会（ESOT）在哥本哈根召开之际，更加引发了外界对这个话题的关注。
 
-<div align="center"><img src="bird/img/2019-9-25-denmark-condemn-ccp_01.jpg " width=640></div>
+<div align="center"><img src="bird/img/2019-9-25-denmark-condemn-ccp_01.jpg" width=640></div>
 <div align="center">丹麦举办反活摘器官研讨会，五个国际人权组织签署联合声明，呼吁采取行动，制止中国（中共）为移植器官非法谋杀良心犯。</div><p>
 研讨会由四个国际人权组织联合举办，宗旨为：提醒国际社会「活摘器官」是中共迫害良心犯的手段，呼吁各国政府勿成为中共犯罪帮凶。
 
