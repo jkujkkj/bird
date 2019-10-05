@@ -65,7 +65,7 @@
 
 <h1 align="center"><b>国殇日 历史将铭记勇敢的中国人</b></h1>
 
-<div align="center"><img src="bird/img/ e214094d4c2f15c3edfc7e5b66dc8370-600x400.jpg" width=640></div>
+<div align="center"><img src="bird/img/e214094d4c2f15c3edfc7e5b66dc8370-600x400.jpg" width=640></div>
 <div align="center">国殇日，中国人都需要思考：我们民族的源头何在？生命为何而来？</div><p>
 
 【大纪元2019年10月02日讯】10月1日，世界聚焦中国。那一片广阔的土地，孕育了辉煌，见证了神奇，却在过去的70年里饱经创伤，满目疮痍。五千年传统被摧毁，八千万生灵遭戕害，真相被掩盖，自由被扼杀。当文化和尊严消逝远去，当黑白颠倒、雾锁古都，不应有歌舞升平、花团锦簇。
