@@ -5,7 +5,7 @@
 
 <hr>
 
-<div align=center><b>直连不必翻墙 中国禁闻  每日更新 http://220.141.135.53</b></div>
+<div align=center><b>直连不必翻墙 中国禁闻  每日更新 http://61.228.112.77</b></div>
 
 <hr>
 
