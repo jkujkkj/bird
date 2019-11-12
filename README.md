@@ -3,8 +3,6 @@
  
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
   <div align=center>
-<h2><b><a href="https://git.io/ffq">● 免费突破封锁翻墙软件 ● </a></b></h2></div>
-<div align=center>
 <h2><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
 <table>
 
