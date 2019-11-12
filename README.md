@@ -75,8 +75,6 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/ssss2">➤ “世纪骗局”</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/55">➤ “四•二五”上访真相</a></b></h3></tr>
-</td>
 <tr><td width=900><h3><b><a href="https://git.io/ykykyk">➤ 纪念四·二五</a></b></h3></tr>
 </td>
  <tr><td width=900><h3><b><a href="https://git.io/1400">➤ “1400例”真相</a></b></h3></tr>
