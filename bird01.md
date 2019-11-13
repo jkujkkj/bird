@@ -1,11 +1,8 @@
 <IMG SRC="bird/img/330777-140Q014494666.jpg" width=880></p>
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
-<div align=center><b>突破封锁看世界 分享翻墙工具 请先下载软件 https://git.io/ffq</b></div>
 
-<hr>
-
-<div align=center><b>直连不必翻墙 中国禁闻  每日更新 http://36.227.99.228</b></div>
+<div align=center><b>http://220.141.128.24</b></div>
 
 <hr>
 
