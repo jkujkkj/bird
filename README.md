@@ -83,7 +83,7 @@
 
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
 <table>
-<tr><td width=900><h3><b><a href="https://git.io/02">➤ 法轮大法好真相</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://git.io/bb99bbss">➤ 法轮大法好真相</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/cvs">➤ 法轮大法洪传世界</a></b></h3></tr>
 </td>
