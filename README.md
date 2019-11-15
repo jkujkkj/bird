@@ -116,7 +116,7 @@
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
 
 <table>
-<tr><td width=900><h3><b><a href="https://git.io/9m">➤《九评共产党》</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://git.io/9p9pos">➤《九评共产党》</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/goal">➤《共产主义的终极目的——中国篇》</a></b></h3></tr>
 </td>
