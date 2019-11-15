@@ -26,6 +26,8 @@
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird03.md"><b>明真相能保命(三)</a></b></h2>
 
+<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird04.md"><b>明真相能保命(四)</a></b></h2>
+
 <h1 align="center"><b>仁者之勇</b></h1>
 
 <div align="center"><img src="bird/img/maxresdefault (5).jpg" width=640></div>
