@@ -3,7 +3,7 @@
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 
-<div align=center><b>http://36.227.112.13</b></div>
+<div align=center><b>http://220.141.129.66</b></div>
 
 <hr>
 
