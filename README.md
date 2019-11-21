@@ -5,6 +5,12 @@
   <div align=center>
 <h2><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
 <table>
+ 
+<hr>
+
+<div align=center><b>翻墙软件免费下载 https://git.io/opopop </b></div>
+
+<hr>
 
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
 
