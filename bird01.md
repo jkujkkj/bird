@@ -9,16 +9,11 @@
 
 <div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
 
-<hr>
-
-<div align=center><b>生命的抉择 稍纵即逝的良机！…你想知道的都在这里https://git.io/01</b></div>
+<div align=center><b>翻墙软件免费下载 https://git.io/opopop </b></div>
 
 <hr>
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
-
-<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
-<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
