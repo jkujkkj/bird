@@ -2,9 +2,13 @@
 
 <a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
 
-<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
-<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
+<div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
 
+<hr>
+
+<div align=center><b>翻墙软件免费下载 https://git.io/opopop </b></div>
+
+<hr>
 
 <h1 align="center"><b>寺院高僧送一本转法轮 令肺癌患者双喜临门</b></h1>
 
