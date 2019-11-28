@@ -32,6 +32,7 @@
 <div align="center"><img src="bird/img/Mfgw9XMTqSQPPeJsEqq6_lotus sparkle IF.jpg" width=640></div><p>
 
 【明慧网二零一九年十一月二十三日】
+
 （一）
 
 在中国五千年的传统文化中，流传着许多忠贞不渝的爱情故事。无论丈夫遭遇贫穷或当官被贬为平民，妻子都不嫌贫爱富、不另攀高枝，无论缘定终身的未婚夫是考中状元还是沦为乞丐，苦苦等待的未婚妻都海枯石烂心不变。
