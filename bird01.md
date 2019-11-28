@@ -29,7 +29,7 @@
 
 <h1 align="center"><b>风雨中的坚守与等待</b></h1>
 
-<div align="center"><img src="bird/img/ Mfgw9XMTqSQPPeJsEqq6_lotus sparkle IF.jpg" width=640></div><p>
+<div align="center"><img src="bird/img/Mfgw9XMTqSQPPeJsEqq6_lotus sparkle IF.jpg" width=640></div><p>
 
 【明慧网二零一九年十一月二十三日】
 （一）
