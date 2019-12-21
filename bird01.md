@@ -29,7 +29,7 @@
 
 <h1 align="center"><b>台湾人为大陆游客展现的独特「风景线」</b></h1>
 
-<div align="center"><img src="bird/img/ 2019-12-14-taiwan-story_01-600x400.jpg" width=640></div>
+<div align="center"><img src="bird/img/2019-12-14-taiwan-story_01-600x400.jpg" width=640></div>
 <div align="center">火车站旁民宅顶楼的鲜明横幅和等候游览车之处的真相展板，是当地法轮功学员在苏澳新站，为中国大陆游客准备的一道独特风景线。</div><p>
 
 【大纪元2019年12月18日讯】大陆游客从台湾花莲乘火车赴台北都要在宜兰县的「苏澳新站」接驳游览车。当地法轮功学员每天到火车站，在游客短暂停留时，在匆匆一走一过之间传递真相信息，日复一日，迄今8年。
