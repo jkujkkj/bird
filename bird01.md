@@ -2,7 +2,6 @@
 <IMG SRC="bird/img/330777-140Q014494666.jpg" width=880></p>
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
-
 <h1>点击视频 http://111.241.95.80</h1>
 
 <hr>
