@@ -14,12 +14,10 @@
 
 <hr>
 
-<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
-
-<hr>
-
 <h1>请收藏网址(新闻视频ip)  随时连上最新即时IP<br>
 https://git.io/swspip</h1>
+
+<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
