@@ -6,7 +6,7 @@
 
 <hr>
 
-<div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
+<h1>点击视频 正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</h1>
 
 <hr>
 
