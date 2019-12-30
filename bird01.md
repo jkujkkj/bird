@@ -3,7 +3,7 @@
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 
-<div align=center><b>http://111.241.95.80</b></div>
+<h1>点击视频 http://111.241.95.80</h1>
 
 <hr>
 
