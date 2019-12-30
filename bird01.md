@@ -16,6 +16,11 @@
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
+<hr>
+
+<h1>请收藏网址(新闻视频ip)  随时连上最新即时IP<br>
+https://git.io/swspip</h1>
+
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird02.md"><b>明真相能保命(二)</a></b></h2>
