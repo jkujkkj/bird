@@ -4,6 +4,8 @@
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 <h1>点击视频 http://111.241.95.80</h1>
 
+<h1>随时连上最新即时IP (新闻视频ip) https://git.io/swspip</h1>
+
 <hr>
 
 <h1>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</h1>
@@ -13,8 +15,6 @@
 <h1>翻墙软件免费下载 https://git.io/opopop</h1>
 
 <hr>
-
-<h1>随时连上最新即时IP (新闻视频ip) https://git.io/swspip</h1>
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
