@@ -6,11 +6,11 @@
 
 <hr>
 
-<h1>点击视频 正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</h1>
+<h1>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</h1>
 
 <hr>
 
-<div align=center><b>翻墙软件免费下载 https://git.io/opopop </b></div>
+<h1>翻墙软件免费下载 https://git.io/opopop</h1>
 
 <hr>
 
