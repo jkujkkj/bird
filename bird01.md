@@ -30,7 +30,7 @@
 
 <h1 align="center"><b>国画：山村福音</b></h1>
 
-<div align="center"><img src="bird/img-1/yruugu.jpg " width=640></div><p>
+<div align="center"><img src="img-1/yruugu.jpg " width=640></div><p>
 
 <b>法轮大法好
 法徒传乡亲
