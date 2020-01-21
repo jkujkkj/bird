@@ -56,9 +56,9 @@
 
 李女士的女婿David Xie从小跟随家人修炼。因为年纪小，没完全明白大法是什么，一度放松了修炼。来加拿大留学后，一个偶然的机会，又重新走回修炼。「大法的种子从小就已经植入心灵，『真善忍好』对我来说，是自然而然的事。感恩师父仍然给我修炼的机缘。」他说。
 
-
-<div align="center"><img ="img-1/15731d71b9773913_ttl7dayxol_DSC_0512-600x402.jpg" width=640></div>
+<div align="center"><img src="img-1/15731d71b9773913_ttl7dayxol_DSC_0512-600x402.jpg" width=640></div>
 <div align="center">李女士（右）全家恭祝师尊新年好。</div><p>
+
 
 【文章来源】http://www.epochtimes.com/b5/18/12/24/n10929045.htm
 
