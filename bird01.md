@@ -2,7 +2,7 @@
 <IMG SRC="bird/img/330777-140Q014494666.jpg" width=880></p>
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
-<h1>中国禁闻 点击视频 http://220.141.125.164</h1>
+<h1>中国禁闻 点击视频 http://36.228.9.144</h1>
 
 <h1>随时连上最新即时IP (新闻视频ip) https://git.io/swspip</h1>
 
