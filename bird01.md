@@ -99,7 +99,7 @@
 
 <h1 align="center"><b>肺炎疫情快速扩散 中国民众需自救</b></h1>
 
-<div align="center"><img src="img-1/ EOfsrUYVUAArpaj-600x400.jpg" width=640></div>
+<div align="center"><img src="img-1/EOfsrUYVUAArpaj-600x400.jpg" width=640></div>
 <div align="center">图为武汉一家医院外身穿一级防疫服的医护人员。</div><p>
 
 【大纪元2020年01月21日讯】武汉新型肺炎疫情正在迅速蔓延至大陆多省及周边国家。
