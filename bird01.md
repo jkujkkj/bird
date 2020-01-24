@@ -1,5 +1,5 @@
 
-<div align="center"><IMG SRC="bird/img-1/53a69c8002808087a9a680063c9f4bd8.jpg" width=800>
+<div align="center"><img src="img-1/53a69c8002808087a9a680063c9f4bd8.jpg" width=800></div></div><p>
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 <h1>中国禁闻 点击视频 http://36.228.9.144</h1>
