@@ -38,7 +38,7 @@
 <div align="center"><img src="img-1/2020-1-24-indian-college-learning-falun-gong_01.jpg" width=640></div>
 <div align="center">图1：学员们在大学教法轮功</div><p>
 
-<div align="center"><img src="img-1/2020-1-24-indian-college-learning-falun-gong_02" width=640></div>
+<div align="center"><img src="img-1/2020-1-24-indian-college-learning-falun-gong_02.jpg" width=640></div>
 <div align="center">图2：上：大学校长赠送鲜花给法轮功学员表示感谢。下：学员在讲迫害真相；其他学员们在派发真相传单</div><p>
 
 部份学生跑上炼功台告诉学员说：「这个法轮功能量好强，我们都感受到了。」 临走前要求与学员留影。
@@ -53,7 +53,7 @@
 
 <h1 align="center"><b>停止迫害法轮功 弃恶从善是正道</b></h1>
 
-<div align="center"><img src="img-1/ 1907181541541973-600x400.jpg" width=640></div>
+<div align="center"><img src="img-1/1907181541541973-600x400.jpg" width=640></div>
 <div align="center"> 2019年7月18日，法轮功学员在华盛顿DC举行法轮功反迫害20周年大游行。图为法轮功学员持“停止迫害法轮功”的横幅呼吁中共停止迫害。</div><p>
 
 【大纪元2020年01月29日讯】2020年一开年，“武汉肺炎”在武汉市集中爆发，并蔓延全国。然而，国难当头，中共仍在迫害法轮功。
