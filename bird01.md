@@ -27,6 +27,15 @@
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird04.md"><b>明真相能保命(四)</a></b></h2>
 
 
+<a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
+
+
+
+<a name=top>
+
+
+
+
 
 <a href =#2>10. 危难中的人性光辉<br>
 <a href =#2>9. 九字真言小故事：汶川地震山崩地裂的那一刻<br>
