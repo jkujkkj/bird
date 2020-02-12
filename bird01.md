@@ -26,6 +26,14 @@
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird04.md"><b>明真相能保命(四)</a></b></h2>
 
+
+
+<a href =#1>1. 瘟疫中的千金良方<br>
+
+
+
+
+
 <hr>
 
 <h1 align="center"><b>危难中的人性光辉</b></h1>
