@@ -33,26 +33,59 @@
 
 <a name=top>
 
+<a href =#51>51.危难中的人性光辉</a><br>
+<a href =#50>50.九字真言小故事：汶川地震山崩地裂的那一刻</a><br>
+<a href =#49>49.制止活摘器官是国际社会的共同愿望</a><br>
+<a href =#48>48.瘟疫中的千金良方</a><br>
+<a href =#47>47.印度那格浦的法轮功学员在大学教功受欢迎</a><br>
+<a href =#46>46.停止迫害法轮功 弃恶从善是正道</a><br>
+<a href =#45>45.无尽的感恩表达着人心所向、众望所归</a><br>
+<a href =#44>44.90后大陆留学生：从武汉疫情中清醒</a><br>
+<a href =#43>43.十九前的“伪火”：不攻自破的“世纪谎言”</a><br>
+<a href =#42>42.肺炎疫情快速扩散 中国民众需自救</a><br>
+<a href =#41>41.多伦多法轮功学员向李洪志大师贺新年</a><br>
+<a href =#40>40.神奇的逃命方法</a><br>
+<a href =#39>39.大法让我的苦变甜</a><br>
+<a href =#38>38.庆贺三亿五千万人退党</a><br>
+<a href =#37>37.给孩子的信–我们要退党退团退队</a><br>
+<a href =#36>36.保持善念 躲过中共引来的天灾</a><br>
+<a href =#35>35.见证大法好　昔日村支书成为坚定的大法徒</a><br>
+<a href =#34>34.铁蹄下「岁月静好」吗？</a><br>
+<a href =#33>33.千古冤 天象变</a><br>
+<a href =#32>32.武汉肺炎疫情恐遭隐瞒 国人如何自保？</a><br>
+<a href =#31>31.国画：山村福音</a><br>
+<a href =#30>30.声声「师父新年好」　大法洪恩泽人间</a><br>
+<a href =#29>29.2020中国人最期待的预言</a><br>
+<a href =#28>28.澳洲老少三代西人学员新年谢师恩</a><br>
+<a href =#27>27.二零二零新年祝愿</a><br>
+<a href =#26>26.中共迫害未停 世人已明真相</a><br>
+<a href =#25>25.中国第二十年被美列为「特别关注国」</a><br>
+<a href =#24>24.跟党走　下场可悲</a><br>
+<a href =#23>23.台湾人为大陆游客展现的独特「风景线」</a><br>
+<a href =#22>22.中共监控每个人 深圳人：我们的生命如贱土</a><br>
+<a href =#21>21.美国会议员：中共将垮台 支持中国人退党</a><br>
+<a href =#20>20.给上天留下自己赎罪的凭证</a><br>
+<a href =#19>19.北京高层安排后路 中国人怎么办？</a><br>
+<a href =#18>18.初衷：做一次良心上的选择</a><br>
+<a href =#17>17.航标灯</a><br>
+<a href =#16>16.《真善忍美展》绘画赏析 孩子的巨泪</a><br>
+<a href =#15>15.鼠疫来了 不三退的党员危矣</a><br>
+<a href =#14>14.香港人如水的力量赢得了世界的支持</a><br>
+<a href =#13>13.《转法轮》让我在浮躁的社会中内心平静</a><br>
+<a href =#12>12.一位中国老人的心声：做中华儿女 不当马列子孙</a><br>
+<a href =#11>11.向着幸福出发</a><br>
+<a href =#10>10.涛涛三次井下脱险记</a><br>
+<a href =#9>9.风雨中的坚守与等待</a><br>
+<a href =#8>8.西方地产大亨之子的佛法奇缘</a><br>
+<a href =#7>7.9月底武汉40名法轮功学员遭警察突击绑架</a><br>
+<a href =#6>6.追查国际追查中共雇凶破坏港大纪元印刷厂</a><br>
+<a href =#5>5.黑死病与罗马帝国的覆亡</a><br>
+<a href =#4>4.明慧网恶人榜更新 公布十万人名单</a><br>
+<a href =#3>3.仁者之勇</a><br>
+<a href =#2>2.认清中共残暴 港人对法轮功的认识愈加正面</a><br>
+<a href =#1>1.锲而不舍揭露中共 法轮功值得感谢</a><br>
 
-
-
-
-<a href =#2>10. 危难中的人性光辉<br>
-<a href =#2>9. 九字真言小故事：汶川地震山崩地裂的那一刻<br>
-<a href =#2>8. 制止活摘器官是国际社会的共同愿望<br>
-<a href =#1>7. 瘟疫中的千金良方<br>
-<a href =#1>6. 印度那格浦的法轮功学员在大学教功受欢迎<br>
-<a href =#1>5. 停止迫害法轮功 弃恶从善是正道<br>
-<a href =#2>4. 无尽的感恩表达着人心所向、众望所归<br>
-<a href =#2>3. 90后大陆留学生：从武汉疫情中清醒<br>
-<a href =#2>2. 十九前的“伪火”：不攻自破的“世纪谎言”<br>
-<a href =#2>1. 肺炎疫情快速扩散 中国民众需自救<br>
-
-
-
-
-
-<hr>
+<hr><a name=51>
 
 <h1 align="center"><b>危难中的人性光辉</b></h1>
 
@@ -81,7 +114,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=50>
 
 <h1 align="center"><b>九字真言小故事：汶川地震山崩地裂的那一刻</b></h1>
 
@@ -114,7 +147,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=49>
 
 <h1 align="center"><b>制止活摘器官是国际社会的共同愿望</b></h1>
 
@@ -151,7 +184,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=48>
 
 <h1 align="center"><b>瘟疫中的千金良方</b></h1>
 
@@ -188,7 +221,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=47>
 
 <h1 align="center"><b>印度那格浦的法轮功学员在大学教功受欢迎</b></h1>
 
@@ -213,7 +246,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=46>
 
 <h1 align="center"><b>停止迫害法轮功 弃恶从善是正道</b></h1>
 
@@ -280,7 +313,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=45>
 
 <h1 align="center"><b>无尽的感恩表达着人心所向、众望所归</b></h1>
 
@@ -321,7 +354,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=44>
 
 <h1 align="center"><b>90后大陆留学生：从武汉疫情中清醒</b></h1>
 
@@ -372,7 +405,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
  
-<hr>
+<hr><a name=43>
 
 <h1 align="center"><b>十九前的“伪火”：不攻自破的“世纪谎言”</b></h1>
 
@@ -443,7 +476,7 @@
 
  <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=42>
 
 <h1 align="center"><b>肺炎疫情快速扩散 中国民众需自救</b></h1>
 
@@ -500,7 +533,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=41>
 
 <h1 align="center"><b>多伦多法轮功学员向李洪志大师贺新年</b></h1>
 
@@ -533,10 +566,11 @@
 <div align="center"><img src="img-1/15731d71b9773913_ttl7dayxol_DSC_0512-600x402.jpg" width=640></div>
 <div align="center">李女士（右）全家恭祝师尊新年好。</div><p>
 
-
 【文章来源】http://www.epochtimes.com/b5/18/12/24/n10929045.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=40>
 
 <h1 align="center"><b>神奇的逃命方法</b></h1>
 
@@ -561,7 +595,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2020/1/9/397209.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=39>
 
 <h1 align="center"><b>大法让我的苦变甜</b></h1>
 
@@ -602,7 +638,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2020/1/16/398895.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=38>
 
 <h1 align="center"><b>庆贺三亿五千万人退党</b></h1>
 
@@ -652,7 +690,9 @@
 
 【文章来源】http://www.epochtimes.com/b5/20/1/16/n11797632.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=37>
 
 <h1 align="center"><b>给孩子的信–我们要退党退团退队</b></h1>
 
@@ -675,13 +715,13 @@
 
 夜深了，在此搁笔，祝福你健康快乐！
 
-
 退中共党团队声明人：爱你的父母
-
 
 【文章来源】http://www.epochtimes.com/b5/20/1/5/n11768659.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=36>
 
 <h1 align="center"><b>保持善念 躲过中共引来的天灾</b></h1>
 
@@ -721,7 +761,9 @@
 
 【文章来源】http://www.epochtimes.com/gb/20/1/8/n11776203.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=35>
 
 <h1 align="center"><b>见证大法好　昔日村支书成为坚定的大法徒</b></h1>
 
@@ -756,7 +798,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2020/1/7/398662.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=34>
 
 <h1 align="center"><b>铁蹄下「岁月静好」吗？ </b></h1>
 
@@ -777,7 +821,9 @@
 
 【文章来源】http://www.epochtimes.com/b5/20/1/8/n11776272.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=33>
 
 <h1 align="center"><b>千古冤 天象变</b></h1>
 
@@ -814,7 +860,9 @@
 
 【文章來源】http://www.epochtimes.com/gb/19/11/26/n11681748.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=32>
 
 <h1 align="center"><b>武汉肺炎疫情恐遭隐瞒 国人如何自保？</b></h1>
 
@@ -857,7 +905,9 @@
 
 【文章來源】http://www.epochtimes.com/gb/20/1/6/n11772255.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=31>
 
 <h1 align="center"><b>国画：山村福音</b></h1>
 
@@ -876,7 +926,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/12/28/397617.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=30>
 
 <h1 align="center"><b>声声「师父新年好」　大法洪恩泽人间</b></h1>
 
@@ -901,7 +953,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2020/1/2/398482.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=29>
 
 <h1 align="center"><b>2020中国人最期待的预言</b></h1>
 
@@ -932,7 +986,9 @@
 
 【文章来源】http://www.epochtimes.com/gb/19/12/27/n11748518.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=28>
 
 <h1 align="center"><b>澳洲老少三代西人学员新年谢师恩</b></h1>
 
@@ -982,7 +1038,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/12/28/397641.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=27>
 
 <h1 align="center"><b>二零二零新年祝愿</b></h1>
 
@@ -1015,7 +1073,9 @@
 
 【文章来源】http://www.epochtimes.com/gb/19/12/25/n11745057.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=26>
 
 <h1 align="center"><b>中共迫害未停 世人已明真相</b></h1>
 
@@ -1046,7 +1106,9 @@
 
 【文章来源】http://www.epochtimes.com/gb/19/12/12/n11717546.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=25>
 
 <h1 align="center"><b>中国第二十年被美列为「特别关注国」</b></h1>
 
@@ -1087,7 +1149,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/12/23/397392.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=24>
 
 <h1 align="center"><b>跟党走　下场可悲</b></h1>
 
@@ -1130,7 +1194,9 @@
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/12/21/397292.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=23>
 
 <h1 align="center"><b>台湾人为大陆游客展现的独特「风景线」</b></h1>
 
@@ -1191,7 +1257,9 @@
 
 【文章来源】http://www.epochtimes.com/b5/19/12/17/n11728703.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=22>
 
 <h1 align="center"><b>中共监控每个人 深圳人：我们的生命如贱土</b></h1>
 
@@ -1257,7 +1325,9 @@
 
 【文章来源】http://www.epochtimes.com/b5/19/12/18/n11731162.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=21>
 
 <h1 align="center"><b>美国会议员：中共将垮台 支持中国人退党</b></h1>
 
@@ -1290,7 +1360,9 @@
 
 【文章来源】http://www.epochtimes.com/b5/19/12/16/n11725052.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=20>
 
 <h1 align="center"><b>给上天留下自己赎罪的凭证</b></h1>
 
@@ -1315,7 +1387,9 @@
 
 【文章來源】http://big5.minghui.org/mh/articles/2019/12/15/397038.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=19>
 
 <h1 align="center"><b>北京高层安排后路 中国人怎么办？</b></h1>
 
@@ -1366,7 +1440,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://www.epochtimes.com/b5/19/12/11/n11716423.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=18>
 
 <h1 align="center"><b>初衷：做一次良心上的选择</b></h1>
 
@@ -1446,7 +1522,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://www.epochtimes.com/b5/19/12/12/n11718196.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=17>
 
 <h1 align="center"><b>航标灯</b></h1>
 
@@ -1461,7 +1539,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://big5.minghui.org/mh/articles/2014/6/15/293484.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=16>
 
 <h1 align="center"><b>《真善忍美展》绘画赏析 孩子的巨泪</b></h1>
 
@@ -1487,7 +1567,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】https://www.epochweekly.com/b5/269/10645.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=15>
 
 <h1 align="center"><b>鼠疫来了 不三退的党员危矣</b></h1>
 
@@ -1515,7 +1597,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://www.epochtimes.com/b5/19/11/30/n11691210.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=14>
 
 <h1 align="center"><b>香港人如水的力量赢得了世界的支持</b></h1>
 
@@ -1546,7 +1630,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://www.epochtimes.com/b5/19/12/3/n11698321.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=13>
 
 <h1 align="center"><b>《转法轮》让我在浮躁的社会中内心平静</b></h1>
 
@@ -1633,7 +1719,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/12/4/396229.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=12>
 
 <h1 align="center"><b>一位中国老人的心声：做中华儿女 不当马列子孙</b></h1>
 
@@ -1662,7 +1750,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://www.epochtimes.com/b5/19/12/3/n11697525.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=11>
 
 <h1 align="center"><b>向着幸福出发</b></h1>
 
@@ -1707,7 +1797,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/9/9/392487.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=10>
 
 <h1 align="center"><b>涛涛三次井下脱险记</b></h1>
 
@@ -1735,7 +1827,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/11/27/395906.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=9>
 
 <h1 align="center"><b>风雨中的坚守与等待</b></h1>
 
@@ -1795,7 +1889,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/11/23/396134.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=8>
 
 <h1 align="center"><b>西方地产大亨之子的佛法奇缘</b></h1>
 
@@ -1825,7 +1921,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】https://www.epochtimes.com.tw/n268092/html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=7>
 
 <h1 align="center"><b>9月底武汉40名法轮功学员遭警察突击绑架</b></h1>
 
@@ -1884,7 +1982,9 @@ Bello的分析在中国正在得到印证。民众最直观的感觉是钱毛了
 
 【文章来源】http://www.epochtimes.com/b5/19/11/19/n11666088.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=6>
 
 <h1 align="center"><b>追查国际追查中共雇凶破坏港大纪元印刷厂</b></h1>
 
@@ -1934,7 +2034,9 @@ World Organization to Investigate the Persecution of Falun Gong
 
 【文章来源】http://www.epochtimes.com/b5/19/11/20/n11669715.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=5>
 
 <h1 align="center"><b>黑死病与罗马帝国的覆亡</b></h1>
 
@@ -2023,7 +2125,9 @@ World Organization to Investigate the Persecution of Falun Gong
 
 【文章来源】https://www.ntdtv.com/b5/2019/11/16/a102708562.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=4>
 
 <h1 align="center"><b>明慧网恶人榜更新 公布十万人名单</b></h1>
 
@@ -2057,8 +2161,9 @@ https://library.minghui.org/criminal/html/lastname/
 
 【文章來源】http://www.epochtimes.com/gb/19/11/17/n11660745.htm
 
+ <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr>
+<hr><a name=3>
 
 <h1 align="center"><b>仁者之勇</b></h1>
 
@@ -2084,7 +2189,9 @@ https://library.minghui.org/criminal/html/lastname/
 
 【文章来源】http://big5.minghui.org/mh/articles/2019/11/14/395814.html
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=2>
 
 <h1 align="center"><b>认清中共残暴 港人对法轮功的认识愈加正面</b></h1>
 
@@ -2139,9 +2246,12 @@ https://library.minghui.org/criminal/html/lastname/
 “谢谢你们的勇敢，可能有好多事情我们还需时间去了解，同时真心感谢你们的付出！！”
 
 “以往不信，现在不得不信。”“支持法轮功。”“真金不怕火炼。”“法轮功，对不起！
+
 【文章來源】http://www.epochtimes.com/gb/19/11/7/n11639377.htm
 
-<hr>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=1>
 
 <h1 align="center"><b>锲而不舍揭露中共 法轮功值得感谢</b></h1>
 
@@ -2171,4 +2281,6 @@ https://library.minghui.org/criminal/html/lastname/
 今年，香港前立法会议员梁国雄表示，很多香港人在“反送中”修例的过程中，才清楚看清中共的本质。对于香港法轮功学员20年来，不间断的揭露中共邪恶本质、真相及反共的意志，梁国雄表示感谢。相信不仅香港，还有世界其他国家地区应该都无异议，在揭露中共方面，法轮功确实值得感谢。
 
 【文章来源】http://www.epochtimes.com/gb/19/11/1/n11627189.htm
+
+ <a href=#top><h6 align="right">回上方</h6></a>
 
