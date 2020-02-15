@@ -94,7 +94,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=xx>
+<hr><a name=55>
 
 <h1 align="center"><b>《刘伯温碑记》点明避开瘟疫的真言</b></h1>
 
@@ -155,7 +155,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=xx>
+<hr><a name=54>
 
 <h1 align="center"><b>姥姥避瘟疫的法宝</b></h1>
 
