@@ -34,6 +34,7 @@
 <a name=top>
 
 
+<a href =#58>58. 他們怎麼康復的？</a><br>
 <a href =#57>57. 一个中国人的心声</a><br>
 <a href =#56>56. 雪打雷 藏玄机</a><br>
 <a href =#55>55.《刘伯温碑记》点明避开瘟疫的真言</a><br>
@@ -96,10 +97,6 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=58>
-
-<a href =#57>58. 他們怎麼康復的？</a><br>
-
-
 
 <h1 align="center"><b>他們怎麼康復的？</b></h1>
 
