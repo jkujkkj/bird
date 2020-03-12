@@ -132,7 +132,7 @@
 <div align="center"><img src="img-1/2020-3-10-india-pune-teach-falun-gong_03.jpg" width=640></div>
 <div align="center">浦那法轮功学员在跨国IT公司教功以及讲解法轮功在全球弘传的盛况。（明慧网）</div><p>
 
-<div align="center"><img src="img-1/2020-3-10-india-pune-teach-falun-gong_02".jpg" width=640></div>
+<div align="center"><img src="img-1/2020-3-10-india-pune-teach-falun-gong_02.jpg" width=640></div>
 <div align="center">浦那部门的职工们在学炼法轮功（明慧网）</div><p>
 
 在学习了第一套功法之后，许多员工表示感到精力非常充沛。他们分享了经验，这是一次非常不同的炼习，从未经历过的如此轻松的锻炼。
