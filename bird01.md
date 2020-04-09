@@ -8,10 +8,6 @@
 
 <hr>
 
-<h1>正义大潮迅猛推进 快看真相才能保平安 https://git.io/souye</h1>
-
-<hr>
-
 <h1>翻墙软件免费下载 https://git.io/opopop</h1>
 
 <hr>
