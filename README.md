@@ -1,5 +1,5 @@
 <div align="center"><IMG SRC="bird/img/hht9tu.jpg" width=800>
-<h3>免翻视频  http://61.228.179.124/310</h3></div>
+<h3>免翻视频  http://61.228.186.19/300</h3></div>
  
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
   <div align=center>
