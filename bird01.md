@@ -146,7 +146,6 @@
 
 【文章來源】https://www.epochtimes.com/gb/20/4/12/n12023864.htm
 
-<a href =#77>77. 疫情下　乌克兰法轮功学员传播真相</a><br>
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
