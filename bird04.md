@@ -3,8 +3,6 @@
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 
-<div align=center><b>http://220.141.128.24</b></div>
-
 <hr>
 
 <div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
