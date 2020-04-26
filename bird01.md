@@ -1,5 +1,5 @@
 
-<div align="center"><img src="img-2/0426aa.jpg " width=800></div><p>
+<div align="center"><img src="img/0426aa.jpg " width=800></div><p>
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 <h1>中国禁闻 点击视频 http://61.228.188.16/310</h1>
