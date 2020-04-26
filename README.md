@@ -1,4 +1,4 @@
-<div align="center"><IMG SRC="bird/ img-2/0426aa.jpg" width=800></div><p>
+<div align="center"><img src="img-1/2020-3-17-south-australia-telling-falun-gong-truth_01.jpg" width=640></div><p>
 <h3>免翻视频  http://61.228.188.16/310</h3></div>
  
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
