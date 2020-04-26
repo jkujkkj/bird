@@ -1,6 +1,6 @@
 <div align="center"><img src="img-2/hht9tu.jpg" width=800></div><p>
 
-<h3>免翻视频  http://61.228.188.16/310</h3></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频http://61.228.188.16/310</b></div>
  
 <div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
   <div align=center>
