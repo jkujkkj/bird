@@ -4,7 +4,7 @@
 <div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-2/0426aa.jpg"width=800></div><p>
 
 <IMG SRC="bird/img/2468.jpg" width=800></p>
-<h1>中国禁闻 点击视频 http://61.228.188.16/310</h1>
+<h1>中国禁闻 点击视频 http://61.228.184.95/300</h1>
 
 <h1>随时连上最新即时IP (新闻视频ip) https://git.io/swspip</h1>
 
