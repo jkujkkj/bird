@@ -7,7 +7,7 @@
 
 <hr>
 
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻  点击视频  </a></b></h3></tr>
 </td>
 
 <hr>
@@ -130,8 +130,8 @@
 
 <hr><a name=80>
 
-<h1 align="center"><b>大疫前的正信 向神祈祷</b></h1>
-中共病毒在这个大家族里失去传染力
+<h1 align="center"><b>中共病毒在這個大家族裡失去傳染力</b></h1>
+
 <div align="center"><img src="img-1/2015-5-2-minghui-painting-jiangzhenxiang-scaled-2-1587256451002-600x400.jpg" width=640></div>
 <div align="center">法轮功学员向人们传播保平安的良方「九字真言」——「法轮大法好、真善忍好」。（明慧网）</div><p>
 
