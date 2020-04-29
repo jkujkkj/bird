@@ -7,7 +7,8 @@
 
 <hr>
 
-<h1>中国禁闻 点击视频 https://bit.ly/2VIs51L</h1>
+<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻</a></b></h3></tr>
+</td>
 
 <hr>
 
