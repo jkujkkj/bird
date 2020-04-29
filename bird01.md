@@ -10,7 +10,7 @@
 
 <hr>
 
-<div align=center><b>翻墙软件免费下载 https://bit.ly/3asSXIA    </b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
 
 <hr> 
 
