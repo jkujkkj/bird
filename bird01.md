@@ -6,15 +6,15 @@
 <IMG SRC="bird/img/2468.jpg" width=800></p>
 <h1>中国禁闻 点击视频 https://bit.ly/2VIs51L</h1>
 
-<h1>随时连上最新即时IP (新闻视频ip) https://git.io/swspip</h1>
+<h1>随时连上最新即时IP (新闻视频ip)https://git.io/swspip</h1>
 
 <hr>
 
-<h1>翻墙软件免费下载 https://bit.ly/3asSXIA    </h1>
+<h1>翻墙软件免费下载 https://bit.ly/3asSXIA</h1>
 
-<hr>
+<hr> 
 
- <h1> 看更多真相 https://bit.ly/2RQM1hX</h1>
+<h1>看更多真相 https://bit.ly/2RQM1hX</h1>
 
 <h1><b><a href="https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
