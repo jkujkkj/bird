@@ -10,7 +10,7 @@
 
 <hr>
 
-<h1>翻墙软件免费下载 https://bit.ly/3asSXIA</h1>
+<div align=center><b>翻墙软件免费下载 https://bit.ly/3asSXIA    </b></div>
 
 <hr> 
 
