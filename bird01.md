@@ -10,11 +10,13 @@
 
 <hr>
 
-<h1>翻墙软件免费下载 https://git.io/opopop</h1>
+<h1>翻墙软件免费下载 https://bit.ly/3asSXIA    </h1>
 
 <hr>
 
-<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
+ <h1> 看更多真相 https://bit.ly/2RQM1hX</h1>
+
+<h1><b><a href="https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
