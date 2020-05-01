@@ -3,7 +3,7 @@
 
 <div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/330315-140415213A634.jpg"width=800></div><p>
 
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频http://61.228.188.16/310</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
 
 <hr>
 
@@ -15,8 +15,6 @@
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
 
 <hr>
-
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
 
 <a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
 
