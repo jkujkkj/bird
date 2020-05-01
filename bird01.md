@@ -132,7 +132,7 @@
 
 <h1 align="center"><b>美发言人：中共官员能上推特 老百姓也该上</b></h1>
 
-<div align="center"><img src="img-1/ GettyImages-1208604665-600x400.jpg" width=640></div>
+<div align="center"><img src="img-1/GettyImages-1208604665-600x400.jpg" width=640></div>
 <div align="center">图为美国国务卿麦克·蓬佩奥（Mike Pompeo，右）和国务院发言人摩根·奥塔格斯（Morgan Ortagus，左）出席简报会。 (Alex Wong/Getty Images) </div><p>
 
 
