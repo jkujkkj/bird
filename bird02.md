@@ -1,10 +1,9 @@
 
 <a name=top>
 
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/330315-140415213A634.jpg"width=800></div><p>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/330315-140415213A635.jpg"width=800></div><p>
 
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频http://61.228.188.16/310</b></div>
-
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
 <hr>
 
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻  点击视频  </a></b></h3></tr>
@@ -13,10 +12,6 @@
 <hr>
 
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
-
-<hr>
-
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
 
 <hr>
 <h1 align="center"><b>法轮功在反迫害中壮大</b></h1>
