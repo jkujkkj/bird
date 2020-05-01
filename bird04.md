@@ -1,24 +1,22 @@
 
-<IMG SRC="bird/img/330777-140Q014494666.jpg" width=880></p>
+<a name=top>
 
-<IMG SRC="bird/img/2468.jpg" width=800></p>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/330315-140415213A634.jpg"width=800></div><p>
 
-<hr>
-
-<div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频http://61.228.188.16/310</b></div>
 
 <hr>
 
-<div align=center><b>翻墙软件免费下载 https://git.io/opopop </b></div>
+<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻  点击视频  </a></b></h3></tr>
+</td>
 
 <hr>
 
-<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
+<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
 
-<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
-<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
+<hr>
 
-<IMG SRC="bird/img/圖片 19.jpg" width=800></p>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird02.md"><b>明真相能保命(二)</a></b></h2>
 
