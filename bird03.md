@@ -1,12 +1,24 @@
-<a href="https://git.io/ffq"><IMG SRC="bird/img/0523-1.jpg" width=880></p></a>
 
-<a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
+<a name=top>
 
-<div align=center><b>正义大潮迅猛推进 快看真相才能保平安 https://git.io/Ffor</b></div>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/330315-140415213A634.jpg"width=800></div><p>
+
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频http://61.228.188.16/310</b></div>
 
 <hr>
 
-<div align=center><b>翻墙软件免费下载 https://git.io/opopop </b></div>
+<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻  点击视频  </a></b></h3></tr>
+</td>
+
+<hr>
+
+<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
+
+<hr>
+
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
+
+<a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
 
 <hr>
 
