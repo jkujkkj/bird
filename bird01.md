@@ -146,8 +146,6 @@
 
 【文章来源】https://www.epochtimes.com/b5/20/5/12/n12102753.htm
 
-<a href =#87>87. 同庆法轮大法日 台北学员恭祝师尊华诞</a><br>
-
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=87>
