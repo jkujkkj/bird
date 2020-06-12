@@ -3,7 +3,7 @@
 
 <div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/2112.jpg"width=800></div><p>
 
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2A4uPQb</b></div>
 <hr>
 
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻  点击视频  </a></b></h3></tr>
