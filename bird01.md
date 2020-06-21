@@ -159,7 +159,7 @@
 
 【明慧网二零二零年六月二十日】（明慧记者王英编译报导）六月十九日，美国国务卿蓬佩奥在哥本哈根民主峰会上（Copenhagen Democracy Summit）就「欧洲面临的中共挑战」发表演讲。他表示，中共不仅对本国人民行恶，它的恶行影响了全世界的人。
 
-<div align="center"><img src="img-1/ 2020-6-19-mike-pompeo_01.jpg" width=640></div>
+<div align="center"><img src="img-1/2020-6-19-mike-pompeo_01.jpg" width=640></div>
 <div align="center">图：美国国务卿蓬佩奥通过视频在哥本哈根民主峰会上演讲</div><p>
 
 第三届哥本哈根民主高峰会六月十八日至十九日以视讯方式举行，蓬佩奥、欧盟执委会副主席尤洛娃（Věra Jourová）、香港众志秘书长黄之锋等人应邀发表演说。
@@ -228,7 +228,7 @@
 
 <h1 align="center"><b>东北小伙子：法轮功是在救人啊</b></h1>
 
-<div align="center"><img src="img-1/ 2017-4-29-gaoxiong-513_03.jpg" width=640></div><p>
+<div align="center"><img src="img-1/2017-4-29-gaoxiong-513_03.jpg" width=640></div><p>
 
 【明慧网二零二零年六月十九日】（明慧记者章韵报导）中共病毒（武汉肺炎）爆发后，中共一再掩盖疫情，拖延瞒报，使疫情扩散到全中国，以至全世界。目前中共病毒（武汉肺炎）疫情再次肆虐北京，确诊病例持续增加，中共现在还在继续欺骗民众。
 
