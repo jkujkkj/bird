@@ -198,7 +198,7 @@
 
 <h1 align="center"><b>奥地利比利时发声 谴责中共活摘人体器官</b></h1>
 
-<div align="center"><img src="img-1/AAAA-2-1.jpg" width=640></div>
+<div align="center"><img src="img-1/2154.jpg" width=640></div>
 <div align="center">2019年9月24～28日联合国首脑峰会期间，法轮功学员呼吁制止中共迫害法轮功、制止中共活摘法轮功学员的器官。</div><p>
 
 【大纪元2020年06月28日讯】（英文大纪元记者Eva Fu报导、李辰编译）随着两个欧洲国家奥地利和比利时加入反对非法器官交易的行列，中共活摘人体器官的残忍行径今年6月再次受到人们关注。
