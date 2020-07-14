@@ -175,7 +175,7 @@
 
 活动以「支持正义、唤醒良知、解体中共、结束迫害」为主轴，有法轮功五套功法演炼，有图片展：包括「法轮功在世界展风采」、「三亿人退出中共」、「法轮功是佛法」等展现大法美好及揭露中共邪恶真相内容，从早上开始即游客如织，学员们还在公园各处发放真相资料。
 
-<div align="center"><img src="img-1/ 2020-7-12-taiwan-jiayi-hong-fa_01.jpg" width=640></div><p>
+<div align="center"><img src="img-1/2020-7-12-taiwan-jiayi-hong-fa_01.jpg" width=640></div><p>
 
 <div align="center"><img src="img-1/2020-7-12-taiwan-jiayi-hong-fa_04.jpg" width=640></div><p>
 
@@ -213,9 +213,9 @@
 
 【明慧网二零二零年七月十三日】（明慧记者德祥德国慕尼黑报导）当特雷萨﹒艾博讷尔女士（Theresa Ebner）看到法轮功学员在红十字广场展示功法时，情不自禁地跟着学员比划着冲灌的动作。之后她签名声援法轮功学员反迫害，认为尽管遭受中共迫害，法轮功学员们还坚持修炼，她觉得这是一种强大的内在力量，并表示自己要到炼功点学炼法轮功。
 
-<div align="center"><img src="img-1/ 2020-7-12-germany-munich-falun-gong-info-day_01.jpg" width=640></div><p>
+<div align="center"><img src="img-1/2020-7-12-germany-munich-falun-gong-info-day_01.jpg" width=640></div><p>
 
-<div align="center"><img src="img-1/ 2020-7-12-germany-munich-falun-gong-info-day_03.jpg" width=640></div>
+<div align="center"><img src="img-1/2020-7-12-germany-munich-falun-gong-info-day_03.jpg" width=640></div>
 <div align="center">二零二零年七月十一日，德国慕尼黑法轮功学员在红十字广场（Rotkreuzplatz）举办信息日活动。</div><p>
 
 二零二零年七月十一日，德国慕尼黑的法轮功学员在红十字广场举办信息日活动。学员们挂起「法轮大法好」和呼吁人们签名制止中共迫害法轮功的横幅，还有介绍功法和揭露中共迫害的展板。伴随着祥和的炼功音乐，学员们展示了法轮功的功法，吸引了不少民众观看。
