@@ -167,7 +167,7 @@
 <div align="center"><img src="img-1/2020-8-31-canada-ottawa-car-parade_02.jpg" width=640></div>
 <div align="center">二零二零年八月三十日（周日）下午两点，由渥太华退党服务中心主办的汽车游行由大纪元办公室出发，途经市中心、中使馆、唐人街等地，呼吁人们远离中共，三退保平安。</div><p>
 
-<b>汽车游行获市民赞誉</b><p>汽车游行获市民赞誉
+<b>汽车游行获市民赞誉</b><p>
 
 <div align="center"><img src="img-1/2020-8-31-canada-ottawa-car-parade_04.jpg" width=640></div> ><p>
 
