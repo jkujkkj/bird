@@ -91,7 +91,7 @@
 
 <h1 align="center"><b>每日三退声明精选（2020/10/15）</b></h1>
 
-<div align="center"><img src="img-1/45646.jpg" width=640></div><p>
+<div align="center"><img src="img-3/45646.jpg" width=640></div><p>
 
 退党声明
 年轻时20岁左右经长辈劝说加入中国共产党，当时想的也是在农村，要是能为父老乡亲办点实实在在的好事，在农村当了两年民兵班长，后来发现当官根本不是最初想的那么回事，净是些为了私利尔虞我诈勾心斗角，后来索性不干了，现在快40岁了，机缘巧合下看到了外面的世界，听到了真实的事情和新闻真正的认识到了共产党的邪恶，特此还是声明，退出共产党！
@@ -143,6 +143,7 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=37
+
 <h1 align="center"><b>蓬佩奥：中共剥夺十四亿中国人基本权利</b></h1>
 
 <div align="center"><img src="img-1/2020-10-14t155054z_1219266551_rc2fij9v7255_rtrmadp_3_usa-pompeo-e1602785705289-700x366.jpg" width=640></div>
@@ -167,7 +168,6 @@
 【文章来源】https://www.bldaily.com/news/p-467064.html
 
 
-<a href =#36>36. 国际女童日的悲歌与祝愿</a><br>
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
