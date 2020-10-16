@@ -142,9 +142,10 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=37
+<hr><a name=37>
 
 <h1 align="center"><b>蓬佩奥：中共剥夺十四亿中国人基本权利</b></h1>
+
 
 <div align="center"><img src="img-1/2020-10-14t155054z_1219266551_rc2fij9v7255_rtrmadp_3_usa-pompeo-e1602785705289-700x366.jpg" width=640></div>
 <div align="center">10月14日，美国国务卿在国务院的一次新闻发布会上讲话。</div><p>
