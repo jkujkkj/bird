@@ -40,7 +40,7 @@
 
 
 
-
+<a href =#39>39. 无恻隐之心 非人也</a><br>
 <a href =#38>38. 每日三退声明精选（2020/10/15）</a><br>
 <a href =#37>37. 蓬佩奥：中共剥夺十四亿中国人基本权利</a><br>
 <a href =#36>36. 国际女童日的悲歌与祝愿</a><br>
@@ -84,9 +84,9 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=38>
+<hr><a name=39>
 
-<h1 align="center"><b>无恻隐之心 非人也（2020/10/15）</b></h1>
+<h1 align="center"><b>无恻隐之心 非人也</b></h1>
 
 <div align="center"><img src="img-1/984b7a871c24882ff8d4b8331d47951c-600x400.jpg" width=640></div>
 <div align="center">2019年7月18日，华盛顿DC，法轮功学员以烛光悼念的方式，悼念那些为坚持信仰而被残酷折磨致死的中国大陆法轮功学员，呼吁中共停止迫害法轮功。。</div><p>
