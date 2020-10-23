@@ -38,7 +38,7 @@
 
 
 
-
+<a href =#41>41. 最新翻墙软件 突破封锁访问大纪元新唐人</a><br>
 <a href =#40>40. 美助卿：美国在收集中共活摘器官指控信息</a><br>
 <a href =#39>39. 无恻隐之心 非人也</a><br>
 <a href =#38>38. 每日三退声明精选（2020/10/15）</a><br>
@@ -81,6 +81,91 @@
 <a href =#1>1. 全球退党中心推出在线办理「退党证书」服务</a><br>
 -----------------------
 
+
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=41>
+
+<h1 align="center"><b>最新翻墙软件 突破封锁访问大纪元新唐人</b></h1>
+
+<div align="center"><img src="img-1/1102102204202068_1-600x400.jpg" width=640></div>
+<div align="center">图为1989年12月22日，柏林墙开始被拆除，西德民众迎接翻墙前来投奔自由世界的东德民众。柏林墙的倒塌标志着东西德统一，也是共产主义势力在东欧分崩瓦解的里程碑事件。</div><p>
+
+【大纪元2020年10月21日讯】由于中共严密封锁网络，使中国大陆民众难以了解国内外真实情况。近日，海外人士制作翻墙浏览器，供中国大陆民众访问大纪元网站、新唐人网站。该最新翻墙软件支持微软系统和苹果电脑，欢迎大陆用户测试使用。
+
+苹果版翻墙软件
+2020年10月21日
+近日推出苹果版软件，支持苹果手机和平板电脑。考虑到苹果iOS平台没有免费VPN／翻墙工具，特附带支持v2ray、trojan、shadowsocks和shadowsocksR协议的VPN客户端。
+
+安装方法1（推荐）：
+先在苹果机上点击并安装TestFlight软件，然后点击此处安装。
+
+安装方法2：
+用中国以外地区苹果账号登录应用商店，然后点击此处安装。
+
+使用说明：
+从屏幕边缘向内滑动可前进后退，向下滑动可刷新或切换网站。
+支持黏贴链接和扫码添加VPN，可从第三方获取免费VPN。
+切换VPN线路需要断开重连。有中文界面。
+
+安卓版翻墙软件
+此前发布的安卓版，支持安卓4.4及以上系统，文件小，下载方便。电脑版添加查看评论功能，推荐重新下载使用。（安卓手机翻墙软件）
+
+短链接：
+https://git.io/xiazai
+https://git.io/上网
+
+2020年4月15日：
+v1.0.0
+
+由于网络原因，如果长时间显示空白页，请关闭再重新打开多试几次。
+
+更新：查看评论；Windows版添加“打开浏览器”快捷方式。请重新下载使用。
+
+安卓 下载 apk （1.7M）
+支持安卓4.4及以上系统。
+
+Windows 系统 下载
+请解压 epoch_access-1.0.1-win32.zip，双击 epoch_access.exe 使用。（如果系统提示软件来源不明，请点击更多信息，再点仍然运行。）
+
+Mac 系统 下载
+双击 epoch_access-1.0.1-mac.zip，出现 epoch_access 应用，按住键盘的 Control ⌃键并点击 epoch_access 应用，点击打开，再点击打开即可使用。
+
+Linux 系统 下载
+在终端中输入：
+tar xf epoch_access-1.0.1-linux64.tar.xz
+cd epoch_access-1.0.1-linux64.tar.xz
+./epoch_access
+
+短链接：
+https://git.io/xiazai
+https://git.io/上网
+
+电脑翻墙软件
+2020年3月25日：
+
+下载地址和使用说明（这些链接可以不用翻墙在国内直接打开）：
+
+由于网络原因，如果页面显示不完整，请点击刷新按钮多试几次。
+
+Windows系统 下载
+请解压 epoch_access-1.0.1-win32.zip，双击 epoch_access.exe 使用。（如果系统提示软件来源不明，请点击更多信息，再点仍然运行。）
+
+Mac系统 下载
+双击 epoch_access-1.0.1-mac.zip，出现 epoch_access 应用，按住键盘的 Control ⌃键并点击 epoch_access 应用，点击打开，再点击打开即可使用。
+
+Linux系统 下载
+在终端中输入：
+tar xf epoch_access-1.0.1-linux64.tar.xz
+cd epoch_access-1.0.1-linux64.tar.xz
+./epoch_access
+
+短链接：
+https://git.io/xiazai
+https://git.io/上网
+
+【文章來源】https://www.epochtimes.com/gb/20/3/24/n11971400.htm
 
 
 <a href=#top><h6 align="right">回上方</h6></a>
