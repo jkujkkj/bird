@@ -90,8 +90,8 @@
 
 <hr><a name=43>
 
-<h1 align="center"><b>大疫前的正信 向神祈祷</b></h1>
-作恶必遭报 苍天放过谁？
+<h1 align="center"><b>作恶必遭报 苍天放过谁？</b></h1>
+
 <div align="center"><img src="img-1/2018-10-22-nyc-parade_13.jpg" width=640></div><p>
 
 
