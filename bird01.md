@@ -97,7 +97,7 @@
 
 【明慧网二零二零年十月二十八日】在德国西部城市吕嫩市二零二零年十月份的国际文化周，法轮功学员所呈现的金色中国龙，成为了文化周最闪亮的一点，吹去了疫情期间人们的烦闷，当地最大的日报《鲁尔日报》深入采访了把祥龙带入这座城市的法轮功学员郭居峰。报道标题是：在中国被劳教，在吕嫩市找到幸福。
 
-<div align="center"><img src="img-1/ 2020-10-27-germany-media-report_01.jpg" width=640></div>
+<div align="center"><img src="img-1/2020-10-27-germany-media-report_01.jpg" width=640></div>
 <div align="center">图1：德国吕嫩市《鲁尔日报》的报道。</div><p>
 
 <b>由于修炼法轮功被关押到劳教所</b><p>
