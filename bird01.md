@@ -125,7 +125,7 @@
 
 <h1 align="center"><b>他们为什么要退出中共各级组织？</b></h1>
 
-<div align="center"><img src="img-1/ 20200926-PINSHAN-QuitCCP-01-600x390.jpg" width=640></div>
+<div align="center"><img src="img-1/20200926-PINSHAN-QuitCCP-01-600x390.jpg" width=640></div>
 <div align="center"> 2020年9月26日，加拿大埃德蒙顿退党服务中心的志愿者和市民举行汽车游行，声援在三退大潮中退出中共的3.6亿勇士。</div><p>
 
 【大纪元2020年11月02日讯】自大纪元网站2004年12月3日发起「三退」(退党/团/队) 活动截止2020年11月1日傍晚，总计达到366,675,252人「三退」，昨日人数 65,888。
