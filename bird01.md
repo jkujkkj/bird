@@ -142,7 +142,7 @@
 
 <h1 align="center"><b>全球团结抗中共 干净网络当先锋</b></h1>
 
-<div align="center"><img src="img-1/ GettyImages-1097914356-600x400.jpg" width=640></div>
+<div align="center"><img src="img-1/GettyImages-1097914356-600x400.jpg" width=640></div>
 <div align="center"> 2020年11月10日上午，美国国务卿蓬佩奥在自由与民主中心发布会上发表讲话。</div><p>
 
 【大纪元2020年11月12日讯】二零二零年十一月十日，美国国务卿蓬佩奥（Mike Pompeo）表示，目前有近50个国家与170家电讯公司加入了美国领导的“干净网络”，这些国家的5G网络建设只使用可靠供应商，而不使用“华为”等中国公司提供的设备和技术。
