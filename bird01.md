@@ -166,7 +166,7 @@
 
 <h1 align="center"><b>歌曲「紫心勋章」混乱中诞生 重树美国精神</b></h1>
 
-<div align="center"><img src="img-1/giuhi.jpg" width=640></div>
+<div align="center"><img src="img-1/455656.jpg" width=640></div>
 <div align="center">创作歌手詹姆斯·怀特先生。（由Ying Shakespeare提供）</div><p>
 
 【大纪元2020年11月29日讯】（大纪元记者清清编译报导）创作歌手詹姆斯·怀特先生（James H. White）在本月的退伍军人纪念日之际，发表了他的第一首爱国单曲「紫心勋章」（Purple Heart）。歌声感人至深，各在线收听平台均可收听，油管频道（YouTube）可看音乐短片MV。
