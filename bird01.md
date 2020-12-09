@@ -126,7 +126,7 @@
 <div align="center"><img src="img-1/uouow24.jpg" width=640></div>
 <div align="center">图1：法轮功学员在海德堡真相信息日上展示功法</div><p>
 
-<div align="center"><img src="img-1/ jhorjhor255.jpg" width=640></div>
+<div align="center"><img src="img-1/jhorjhor255.jpg" width=640></div>
 <div align="center">图2：过往民众和游客了解真相，签名支持</div><p>
 
 <b>伊朗年轻人：祝你们成功！</b><p> 
