@@ -124,7 +124,7 @@
 
 <h1 align="center"><b>3.6亿中国人已为中共垮台进入新中国做好准备</b></h1>
 
-<div align="center"><img src="img-1/ 2018-9-30-toronto-grand-parade_12.jpg" width=640></div><p>
+<div align="center"><img src="img-1/2018-9-30-toronto-grand-parade_12.jpg" width=640></div><p>
 【希望之声2020年12月15日】（本台记者紫静综合报导）
 
 自2004年11月大纪元时报发表《九评共产党》，阐明中共反天、反地、反人类的邪恶本质，引发了退党大潮。至2020年12月10日，超过3.69亿中国人在大纪元网站上声明退出中共（党、团、队）组织。
