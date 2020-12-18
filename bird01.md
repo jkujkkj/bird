@@ -127,7 +127,7 @@
 
 <h1 align="center"><b>中共活摘器官 难逃法律制裁</b></h1>
 
-<div align="center"><img src="img-1/ c32fd7f4acd1597e53ed0eda3a5c4f09-600x400.jpg" width=640></div>
+<div align="center"><img src="img-1/c32fd7f4acd1597e53ed0eda3a5c4f09-600x400.jpg" width=640></div>
 <div align="center"> 2019年7月18日追查国际出版新书《铁证如山》（Ironclad and Irrefutable Evidence） 。 (追查国际提供)</div><p>
 
 【大纪元2020年12月18日讯】二零二零年十二月十六日，美国国会共和党参议员汤姆·科顿（Tom Cotton）、共和党众议员克里斯·史密斯（Chris Smith）、民主党众议员汤姆·佐茨（Tom Suozzi）联合发起“制止强摘器官法案”（Stop Forced Organ Harvesting Act），以遏止并制裁中共强摘良心犯器官的罪恶。
