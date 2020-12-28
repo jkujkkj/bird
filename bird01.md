@@ -131,7 +131,7 @@
 
 <h1 align="center"><b>姨妹妹在大疫期间脱险</b></h1>
 
-<div align="center"><img src="img-1/ 9ED20641.jpg" width=640></div>
+<div align="center"><img src="img-1/9ED20641.jpg" width=640></div>
 <p>
 
 【明慧网二零二零年十二月十四日】四月初，我姨妹妹从海南回到当地就被当地隔离了，进行核酸检测，没发现情况，就解除了隔离。
