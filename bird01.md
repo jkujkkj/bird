@@ -149,8 +149,8 @@
 
 <h1 align="center"><b>年关来临 冤判不停</b></h1>
 
-<div align="center"><img src="img-1/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
+<div align="center"><img src="img-1/15b37ba4faf26f3b8601313bf27fb26c-600x400.jpg" width=640></div>
+<p>
 
 【大纪元2021年01月24日讯】笔者查阅最近三日明慧网，发现法轮功学员被中共冤判的案例又在不断的增加。中共是一个灭绝人性的邪灵，越到逢年过节就越加疯狂无度，这不年关来临了，又有许多法轮功学员家庭被中共迫害得支离破碎、妻离子散、家破人亡。在此仅举几个迫害案例：
 
