@@ -248,8 +248,8 @@ Nguyen说：「在我炼第三个姿势时，我就感觉好多了，我的呼�
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=104>
-
-<h1 align="center"><b> </b></h1>
+ 
+ <h1 align="center"><b>巧合？ 1720、1820、1920、2020年都有瘟疫</a><br></b></h1>
 
 <div align="center"><img src="img-1/shutterstock_242820463-600x400.jpg" width=640></div>
 <div align="center">在1720、1820、1920和2020年，世界上都有瘟疫发生。此为人类面临死亡与天使在天空中飞行的示意图。</div><p>
