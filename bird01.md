@@ -211,8 +211,6 @@
 【文章来源】http://big5.minghui.org/mh/articles/2021/2/4/419493.html
 
 
-<a href =#113>113. 现代诗歌：未来人的神话故事</a><br>
-
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=113>
