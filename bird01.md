@@ -162,7 +162,7 @@
 
 <h1 align="center"><b>我的女儿如何摆脱中共迫害阴影走向幸福归途的故事</b></h1>
 
-<div align="center"><img src="img-1/ ChMkJll1eL-IN8x8AAGaiNxyvwIAAfEPgC6YrsAAZqg553.jpg" width=640></div>
+<div align="center"><img src="img-1/ChMkJll1eL-IN8x8AAGaiNxyvwIAAfEPgC6YrsAAZqg553.jpg" width=640></div>
 </div><p>
 
 【大纪元2021年02月11日讯】
