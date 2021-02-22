@@ -166,7 +166,7 @@
 
 <h1 align="center"><b>修炼焕发生命力 德青年夫妇感恩李洪志大师</b></h1>
 
-<div align="center"><img src="img-1/ IMG_0427_1-600x400.jpg" width=640></div>
+<div align="center"><img src="img-1/IMG_0427_1-600x400.jpg" width=640></div>
 <div align="center">德国青年夫妇感恩李洪志大师带来神奇功法，福泽世人。</div><p>
 
 【大纪元2021年02月15日讯】（大纪元大纪元德国记者站报导）家住德国柏林的青年夫妇Dima Suchin和Huong Suchin，都是法轮功学员。他们讲述了自己有幸得法修炼的经历，希望在中国新年之际，表达对师父的无比感恩。Dima和Huong表示，要感谢师父，为全世界带来了神奇的功法，恭祝师父新年快乐。
