@@ -173,7 +173,7 @@
 
 <h1 align="center"><b>一部捷克漫画作品聚焦中共强摘器官？</b></h1>
 
-<div align="center"><img src="img-1/ Capture-123.jpg" width=640></div>
+<div align="center"><img src="img-1/Capture-123.jpg" width=640></div>
 <div align="center">漫画作品《戴维战红魔》绘画</div><p>
 
 【大纪元2021年03月03日讯】（英文大纪元记者RYAN BAO报导／乔琦编译）中共政权杀害良心犯、将其器官售卖给器官移植市场的做法，成为媒体文章、书籍和纪录片的话题。
