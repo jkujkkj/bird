@@ -179,7 +179,7 @@
 
 【明慧网二零二一年三月七日】（明慧记者王英旧金山湾区报导）二零二一年三月六日，美国旧金山湾区法轮功学员在东湾海沃市（Hayward）举办真相汽车游行，让民众看到法轮大法的美好，同时揭露中共对法轮功的迫害。看到汽车游行的市民表示，「共产党必须停止做恶。」
 
-<div align="center"><img src="img-1/ 2021-3-6-san-francisco-bay-area-falun-gong-truth_02.jpg" width=640></div><p>
+<div align="center"><img src="img-1/2021-3-6-san-francisco-bay-area-falun-gong-truth_02.jpg" width=640></div><p>
 
 <div align="center"><img src="img-1/2021-3-6-san-francisco-bay-area-falun-gong-truth_04.jpg" width=640></div>
 <div align="center">真相车队在海沃市行进</div><p>
@@ -199,7 +199,7 @@
 
 <hr><a name=133>
 
-<h1 align="center"><b>风刮来3的一张传单救了她的命</b></h1>
+<h1 align="center"><b>风刮来的一张传单救了她的命</b></h1>
 
 【明慧网二零二一年三月十三日】这是一个真实的故事。二零零一年秋天的一个下午，接到我嫂子打来的电话，叫我到她家去，说有事找我。
 
