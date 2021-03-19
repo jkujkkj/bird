@@ -181,7 +181,7 @@
 
 【明慧网二零二一年三月十七日】（明慧渥太华记者站报道）澳大利亚麦考瑞大学（Macquarie University）临床伦理学教授罗杰斯（Wendy Rogers）在二零二一年二月二十四日的关于中共活摘器官的论坛上，从道德责任的角度，阐述了专业机构及人士应采取多项行动共同制止活摘器官。她认为专业机构和人士制止活摘器官的两个前提条件——认知和权力，都已满足。
 
-<div align="center"><img src="img-1/ 2021-3-16-australia-dr-wendy-rogers_01.jpg" width=640></div>
+<div align="center"><img src="img-1/2021-3-16-australia-dr-wendy-rogers_01.jpg" width=640></div>
 <div align="center">澳大利亚麦考瑞大学（Macquarie University）临床伦理学教授罗杰斯（Wendy Rogers）在二零二一年二月二十四日的论坛上从道德责任的角度，阐述了专业机构及人士应采取多项行动共同制止中共活摘器官。</div><p>
 
 <b>中共对活摘器官负有最终责任
