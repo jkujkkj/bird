@@ -182,7 +182,7 @@
 
 <h1 align="center"><b>如何跨越劫难？盘点古今预言</b></h1>
 
-<div align="center"><img src="img-1/ coronavirus.jpg" width=640></div>
+<div align="center"><img src="img-1/coronavirus.jpg" width=640></div>
 <p>
 
 2020年是庚子年，全球爆发了中共病毒（又称新冠肺炎，COVID-19）。一直到庚子年末，疫情都没有得到缓解，现在呢又出现了病毒变种，使原本就不太乐观的疫情，又变得雪上加霜。今天的这期节目，信息量涵盖会比较大。我们先来盘点几位著名的预言家，他们对当今社会做出的预警。
