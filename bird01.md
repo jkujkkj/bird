@@ -176,6 +176,33 @@
 
 
 
+<a href =#139>139. 法轮功学员在名古屋讲真相</a><br>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=139>
+
+<h1 align="center"><b>法轮功学员在名古屋讲真相</b></h1>
+
+【明慧网二零二一年三月十九日】二零二一年三月十四日（星期日），日本中部地区法轮功学员在名古屋市（Nagoya-City）中心的繁华地段「荣（Sakae）」喷水附近讲真相、揭露中共对法轮功学员长达二十一年之久的残酷迫害，并征集声援全球诉江签名。
+活动当天，天气很晴。法轮功学员们打出了写有「法轮大法好」、「真善忍」的中英文横幅和「法轮功弘传世界」、「SOS停止迫害法轮功」、「立即停止活摘法轮功学员器官」等内容的日文横幅。
+
+
+<div align="center"><img src="img-1/2021-3-18-japan-nagoya-falun-gong-truth_01.jpg" width=640></div><p>
+
+<div align="center"><img src="img-1/2021-3-18-japan-nagoya-falun-gong-truth_02.jpg" width=640></div>
+<div align="center">法轮功学员们在名古屋市中心「荣」讲真相</div><p>
+
+学员们在喷水附近炼功，并向过往的人们发送有关法轮功的真相资料。学员们炼功的舒缓动作、祥和的场面，吸引了路人驻足了解真相。
+
+<div align="center"><img src="img-1/2021-3-18-japan-nagoya-falun-gong-truth_03--ss.jpg" width=640></div>
+<div align="center">法轮功学员们正在炼功</div><p>
+
+法轮功学员们在讲法轮功真相的同时，也向人们揭露中共活摘法轮功学员器官，呼吁人们在声援全球诉江签名纸上签名。虽然当天风比较大，很冷，一些民众听了真相之后马上签了名。
+
+【文章来源】http://big5.minghui.org/mh/articles/2021/3/19/422279.html
+
+
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=138>
