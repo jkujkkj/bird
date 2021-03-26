@@ -185,7 +185,7 @@
 
 <h1 align="center"><b>疾病与不幸根本上从何而来？</b></h1>
 
-<div align="center"><img src="img-1/ unnamed.jpg" width=640></div>
+<div align="center"><img src="img-1/unnamed.jpg" width=640></div>
 <p>
 
 【明慧网二零二一年三月二十四日】美国医学博士约翰﹒辛德勒（John A. Schindler）几年前曾出版《病由心生》一书，指出人类76%的疾病都是情绪性疾病，养生和治病的关键是消除负面情绪、培养健康心态，此书先后再版三十多次，销售一百多万册，荣登《纽约时报》畅销书排行榜。
