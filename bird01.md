@@ -233,7 +233,7 @@
 
 王春彦说，「我到了北京站后，去接我的两个人，都被迫害死了。一个叫陈真丽，一个叫孙莲霞。孙莲霞是大连市第一个被迫害致死的。孙莲霞和我，是一个学法组的（指阅读法轮功书籍）。她俩先到北京（上访）的，所以去接我。」
 
-<div align="center"><img src="img-1/2001-1-21-sun_lianxia1.jpg" width=640></div>
+<div align="center"><img src="img-1/2001-1-21-sun_lianxia1.jpg" width=600></div>
 <div align="center">孙莲霞（明慧网）</div><p>
 
 孙莲霞，大连市沙河口区法轮功学员，2000年秋被关入大连市劳动教养院。
@@ -314,7 +314,7 @@
 
 <h1 align="center"><b>父亲被冤判八年 女儿在法庭替父鸣冤</b></h1>
 
-<div align="center"><img src="img-1/ content_562-35-01-700x359-600x359.jpg" width=640></div>
+<div align="center"><img src="img-1/content_562-35-01-700x359-600x359.jpg" width=640></div>
 <div align="center">法轮功学员杨建录冤案，女儿在法庭替父鸣冤。（明慧网）</div><p>
 
 【大纪元2021年03月27日讯】据明慧网近日报导，二零二一年三月十六日，河北省张家口市宣化法院对法轮功学员杨建录非法判刑八年，罚金一万元。杨建录家属正在上诉和控告。
