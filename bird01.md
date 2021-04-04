@@ -192,7 +192,7 @@
 
 <h1 align="center"><b>无忧无悔的青春</b></h1>
 
-<div align="center"><img src="img-1/ 9599.jpg" width=640></div>
+<div align="center"><img src="img-1/9599.jpg" width=640></div>
 <p>
 
 【明慧网二零二一年三月三十日】一九九五年的时候，我上初中，通过同班同学知道了法轮功，在中午午休的时候，和同学一起去了东北师大午间的一个炼功点，在那里炼功的都是东北师大的学生和老师，都是很有学识的人。
