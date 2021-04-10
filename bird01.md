@@ -194,7 +194,7 @@
 
 <h1 align="center"><b>江泽民“四二五”的信及其严重后果</b></h1>
 
-<div align="center"><img src="img-1/id12867476.jpg" width=640></div>
+<div align="center"><img src="img-1/id12867476.jpeg" width=640></div>
 <div align="center">中共迫害法轮功的元凶江泽民。</div><p>
 
 【大纪元2021年04月09日讯】今年4月25日，是上万名法轮功学员到中南海和平上访22周年。
