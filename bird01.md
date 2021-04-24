@@ -228,7 +228,7 @@
 
 【明慧网二零二一年四月二十三日】（明慧记者英梓渥太华报道）加拿大参议员吴蓝海（Thanh Hai Ngo）在二零二一年的“四二五”前夕发出声明，支持法轮功学员面对中共迫害所采取的和平理性行动。他表示，加拿大政府和盟友有责任制止迫害，并和法轮功学员及其他人权受害者站在一起。
 
-<div align="center"><img src="img-1/2020-7-30-canada-supports_08.jpg" width=640></div>
+<div align="center"><img src="img-1/2020-7-30-canada-supports_08.jpg" width=400></div>
 <div align="center">加拿大参议员吴蓝海（Thanh Hai Ngo）</div><p>
 
 <div align="center"><img src="img-1/20210425.jpg" width=640></div>
