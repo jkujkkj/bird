@@ -12,8 +12,9 @@
 <hr>
 
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
+ 
 
-<hr>
+
 <h1 align="center"><b>法轮功在反迫害中壮大</b></h1>
 
 <div align="center"><IMG SRC="bird/img/1605121335352737-600x400.jpg" width=640></div>
