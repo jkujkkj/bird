@@ -1,22 +1,4 @@
 
-<a name=top>
-
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/330315-140415213A635.jpg"width=800></div><p>
-
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2A4uPQb</b></div>
-
-<hr>
-
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻  点击视频  </a></b></h3></tr>
-</td>
-
-<hr>
-
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
-
-<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird02.md"><b>明真相能保命(二)</a></b></h2>
-
-<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird03.md"><b>明真相能保命(三)</a></b></h2>
 
 <IMG SRC="bird/img/330777-140Q014494666.jpg" width=880></p>
 
