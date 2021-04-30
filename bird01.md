@@ -206,7 +206,7 @@
 
 <h1 align="center"><b>对抗中共假新闻 六位中国人成功插播真相</b></h1>
 
-<div align="center"><img src="img-1/ 3526ffa955f460af4f0ebf86b58bd88f@1200x1200.jpeg" width=640></div>
+<div align="center"><img src="img-1/3526ffa955f460af4f0ebf86b58bd88f@1200x1200.jpeg" width=640></div>
 <div align="center">加拿大新境界影视的电影《永恒的五十分钟》剧照。</div><p>
 
 2002年3月5日，六位中国人在有线电视中插播，播放了未经审查的消息。由中共国家支持的谎言，因此在中国的两个城市得以曝光。插播时长50分钟。但是，这些人付出了生命的代价。
