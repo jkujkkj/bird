@@ -69,7 +69,7 @@
 
 参议员凯莉‧安‧巴克签在褒奖中称赞法轮功「真、善、忍」原则，表达对法轮大法创始人和修炼者的感谢，并肯定法轮功对社会做出的杰出贡献。
 
-<div align="center"><img src="img-1/id12921842-2021-5-1-nevada-senator-proclamation.jpg" width=640></div>
+<div align="center"><img src="img-1/id12921842-2021-5-1-nevada-senator-proclamation.jpeg" width=640></div>
 <div align="center">内华达州参议员凯莉‧安‧巴克签发褒奖令。（明慧网）</div><p>
 
 褒奖译文如下：
