@@ -62,14 +62,14 @@
 
 <h1 align="center"><b>美国内华达州参议员褒奖世界法轮大法日</b></h1>
 
-<div align="center"><img src="img-1/id12922089-a0abae28020c846f9733c6f78f9b7b45-600x400.jpeg" width=640></div>
+<div align="center"><img src="img-1/id12922089-a0abae28020c846f9733c6f78f9b7b45-600x400.jpg" width=640></div>
 <div align="center">美国内华达州参议员凯莉‧安‧巴克（Carrie Ann Buck）褒奖世界法轮大法日。</div><p>
 
 【大纪元2021年05月03日讯】为庆祝2021年5月13日第22届「世界法轮大法」日，美国内华达州参议员凯莉‧安‧巴克（Carrie Ann Buck）签发褒奖令，褒奖世界法轮大法日。
 
 参议员凯莉‧安‧巴克签在褒奖中称赞法轮功「真、善、忍」原则，表达对法轮大法创始人和修炼者的感谢，并肯定法轮功对社会做出的杰出贡献。
 
-<div align="center"><img src="img-1/id12921842-2021-5-1-nevada-senator-proclamation.jpeg" width=640></div>
+<div align="center"><img src="img-1/id12921842-2021-5-1-nevada-senator-proclamation.jpg" width=640></div>
 <div align="center">内华达州参议员凯莉‧安‧巴克签发褒奖令。（明慧网）</div><p>
 
 褒奖译文如下：
