@@ -97,7 +97,7 @@
 
 【明慧网二零二一年五月十三日】（明慧记者英梓渥太华报导）加拿大对华政策跨国议会联盟联合主席、前加拿大司法部长、检察长、知名国际人权律师、学者考特勒（Irwin Cotler）先生在法轮大法洪传二十九周年之际，发出视频祝贺。他邀请人们共同参加世界法轮大法日的庆祝。他表示，真善忍既支撑了古老中国价值观念，又反映了普世的价值观。
 
-<div align="center"><img src="img-1/2012-12-9-minghui-falun-gong-canada-cotler.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/2012-12-9-minghui-falun-gong-canada-cotler.jpg" width=640></div>
 <div align="center">加拿大对华政策跨国议会联盟联合主席、前加拿大司法部长、检察长、知名国际人权律师、学者考特勒（Irwin Cotler）先生在法轮大法洪传29周年之际，发出视频祝贺。</div><p>
 
 考特勒先生说，虽然，遗憾的是，我们无法再像往年一样，和法轮功学员、议员和支持者共同在议会山上庆祝，但是，还是他还是邀请大家参与庆祝活动。
