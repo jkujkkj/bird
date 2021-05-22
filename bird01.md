@@ -59,7 +59,7 @@
 
 <h1 align="center"><b>SK前能源专务董事：大法净化身心 适合所有人修炼</b></h1>
 
-<div align="center"><img src="img-1/id12938636-2.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/id12938636-2.jpg" width=640></div>
 <div align="center">SK能源蔚山炼油厂前专务董事金熙东。</div><p>
 
 SK能源蔚山炼油厂前专务董事金熙东自年轻起对于修炼一事就抱有极大渴求，大学时期也曾多次入寺修炼，但他认为，“当今的佛教修炼太过形式化，并非我一直所求”。
