@@ -7,8 +7,7 @@
 
 <hr>
 
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻    </a></b></h3></tr>
-</td>
+<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻    </a></b></h3></tr></td>
 
 <hr>
 
@@ -34,6 +33,7 @@
   
 <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
 
+
 <a name=top>
 
 
@@ -46,11 +46,11 @@
 <a href =#3>3. 瑞典西人：修炼法轮功　全家受益</a><br>
 <a href =#2>2. “母亲节”话母亲们的悲惨遭遇</a><br>
 <a href =#1>1. 美好的缘分 生命的奇迹</a><br>
------------------------
 
 
 
 
+  
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
