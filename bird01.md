@@ -30,12 +30,12 @@
   
 <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
 
-
-
 <a name=top>
-  
-  
-<a href =#14>14. 32年前没有喊出的话</a><br>  
+
+
+
+<a href =#15>15. 超凡入圣的绘画震撼了我的心</a><br> 
+<a href =#14>14. 32年前没有喊出的话</a><br>    
 <a href =#13>13. 我的姥姥</a><br>
 <a href =#12>12. 两家悲、喜剧　警醒世人心</a><br> 
 <a href =#11>11. 救赎与瘟疫一起到来</a><br>
