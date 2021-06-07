@@ -37,9 +37,7 @@
   
   
   
-<a href =#80>80. 躺平的最高境界是三退</a><br>  
-<a href =#15>15. 超凡入圣的绘画震撼了我的心</a><br> 
-<a href =#14>14. 32年前没有喊出的话</a><br>    
+  
 <a href =#13>13. 我的姥姥</a><br>
 <a href =#12>12. 两家悲、喜剧　警醒世人心</a><br> 
 <a href =#11>11. 救赎与瘟疫一起到来</a><br>
@@ -66,11 +64,12 @@
 
 
 
+
+
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=80>
+<hr><a name=16>
 
-<h1 align="center"><b>躺平的最高境界是三退</b></h1>
 
 <div align="center"><img src="img-1/aac356159b33a86ac7227152d4e0116a-600x400.jpg.jpg" width=640></div>
 <div align="center">2019年5月16日，纽约部分法轮功学员在曼哈顿中城举行盛大游行庆祝世界法轮大法日。图为游行队伍中的退党方阵。</div><p>
