@@ -1,7 +1,7 @@
 
 <a name=top>
 
-<div align="center"><a target="_blank" href="https://github.com/sendtruth2020/goodnews2/blob/master/quit/letter.md"><IMG SRC="img-1/20210609.jpg"width=850></div><p>
+<div align="center"><a target="_blank" href="https://github.com/sendtruth2020/goodnews2/blob/master/quit/letter.md"><IMG SRC="img-1/20210610.jpg"width=850></div><p>
 
 
 
