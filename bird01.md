@@ -4,9 +4,6 @@
 <div align="center"><a target="_blank" href="https://github.com/sendtruth2020/goodnews2/blob/master/quit/letter.md"><IMG SRC="img-1/20210610.jpg"width=850></div><p>
 
 
-
-<hr>
-
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
 
 <hr> 
