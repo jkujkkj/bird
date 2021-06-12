@@ -30,43 +30,6 @@
 
 
 <a name=top>
-  
-  
-<a name=top>
-
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/20210318.jpg"width=850></div><p>
-
-<div align=center><b>直连不必翻墙 🌼 https://bit.ly/2A4uPQb</b></div>
-
-<hr>
-
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻    </a></b></h3></tr>
-</td>
-
-<hr>
-
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
-
-<hr> 
-
-<h1>看更多真相 https://bit.ly/2RQM1hX</h1>
-
-<h1><b><a href="https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
-
-<IMG SRC="bird/img/圖片 19.jpg" width=800></p>
-
-<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird02.md"><b>明真相能保命(二)</a></b></h2>
-
-<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird03.md"><b>明真相能保命(三)</a></b></h2>
-
-<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird04.md"><b>明真相能保命(四)</a></b></h2>
-
-<h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird05.md"><b>明真相能保命(五)</a></b></h2>
-
-<a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
-
-
-<a name=top>
 
 
 
