@@ -12,8 +12,6 @@
  
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/n99">➤ 热门時事、评论</a></b></h3></tr>
-</td>
 <tr><td width=900><h3><b><a href="https://git.io/wnn">➤ 小之分享</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/birdf">➤  明真相能保命</a></b></h3></tr>
