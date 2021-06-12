@@ -1,21 +1,14 @@
 <div align="center"><img src="img-2/hht9tu.jpg" width=800></div><p>
 
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/3ezRQKo</b></div>
+<div align=center><a href="https://github.com/dfchunsring/wer/blob/master/epgh.md"><b>免费突破封锁翻墙软件</b></a></div> 
+
+<p>
+
+<div align=center><b>请收藏本网址，连上免翻视频 https://bit.ly/2RQM1hX</b></div>
+
  
-<div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
-  <div align=center>
-<h2><b><a href=" https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
-<table>
  
-<hr>
-
-<div align=center><b>翻墙软件免费下载 https://bit.ly/3asSXIA    </b></div>
-
-<hr>
-
-<div align="center"><IMG SRC="bird/img/y43tt.jpg" width=580></div></p>
-
-<table>
+<div align=center><b> 看更多真相   https://bit.ly/3ezRQKo  </b></div>
  
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻</a></b></h3></tr>
 </td>
