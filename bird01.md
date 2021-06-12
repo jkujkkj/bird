@@ -3,7 +3,7 @@
 
 <div align="center"><a target="_blank" href="https://github.com/sendtruth2020/goodnews2/blob/master/quit/letter.md"><IMG SRC="img-1/20210610.jpg"width=850></div><p>
 
-<div align=center><a href="https://github.com/gofun72/telove/blob/master/soft.md"><b>免费突破封锁翻墙软件</b></a></div> 
+<div align=center><a href="https://github.com/dfchunsring/wer/blob/master/epgh.md/gofun72/telove/blob/master/soft.md"><b>免费突破封锁翻墙软件</b></a></div> 
 
 <p>
 
