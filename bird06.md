@@ -1,24 +1,20 @@
 
 <a name=top>
 
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="img-1/20210318.jpg"width=850></div><p>
+<div align="center"><a target="_blank" href="https://github.com/sendtruth2020/goodnews2/blob/master/quit/letter.md"><IMG SRC="img-1/20210610.jpg"width=850></div><p>
 
-<div align=center><b>直连不必翻墙 🌼 https://bit.ly/2A4uPQb</b></div>
+<div align=center><a href="https://github.com/dfchunsring/wer/blob/master/epgh.md"><b>免费突破封锁翻墙软件</b></a></div> 
 
-<hr>
+<p>
 
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 中国禁闻    </a></b></h3></tr>
-</td>
+<div align=center><b>请收藏本网址，连上免翻视频 https://bit.ly/2RQM1hX</b></div>
 
-<hr>
+ 
+ 
+<div align=center><b> 看更多真相   https://bit.ly/3ezRQKo  </b></div>
 
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
 
-<hr> 
-
-<h1>看更多真相 https://bit.ly/2RQM1hX</h1>
-
-<h1><b><a href="https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
+<h1><b><a href="https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md"></a></b></h1></div>
 
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
