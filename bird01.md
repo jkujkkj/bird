@@ -149,7 +149,7 @@
 然而最后能成行的仅仅是赵帅和妻女。他的父母依然被迫留在海南。如今父亲再次被警察绑架，状况不明。
 
 
-<div align="center"><img src="img-1/ 2021-6-19-zhaoshuai-family.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/ 2021-6-19-zhaoshuai-family.jpg" width=640></div>
 <div align="center">赵帅和妻子于二零一七庆祝年女儿一周岁，拍摄于海南家中</div><p>
 
 <b>给后代一个没有中共的社会</b><p>
