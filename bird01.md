@@ -34,24 +34,6 @@
 <a name=top>
  
  
- 
- 
-
- 
- 
- 
- 
- 
-  
-
-
- 
- 
- 
- 
- 
-
--------------------------------------
 
 <a href =#24>24. 酷刑撼动不了正信</a><br>  
 <a href =#23>23. 找回金色的岁月</a><br> 
@@ -88,7 +70,7 @@
 
 <h1 align="center"><b>酷刑撼动不了正信</b></h1>
 
-<div align="center"><img src="img-1/id13041317-image20-.jpeg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13041317-image20-.jpeg" width=640></div>
 <div align="center">6月20日上午，新西兰部分法轮功修炼者在奥克兰市中心的伊莉萨白广场举行反迫害集会。</div><p>
 
 【大纪元2021年06月23日讯】二零二一年六月二十日，新西兰法轮功学员在奥克兰市中心的伊莉萨白广场集会，揭露中共针对信仰真、善、忍的法轮功修炼者长达二十二年的迫害。多位知名政要人士到场发表演讲，谴责中共的恶行。新西兰总理Jacinda Ardern与绿党联合党魁Hon Marama Davidson都对集会致上祝福。
