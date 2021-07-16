@@ -86,7 +86,7 @@
 
 <h1 align="center"><b>易蓉：百年紅禍惡貫滿盈 解體中共刻不容緩</b></h1>
 
-<div align="center"><img src="img-1/id13089048-210710125346100731-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13089048-210710125346100731-600x400.jpg" width=640></div>
 <div align="center">全球退党服务中心主席易蓉发言指出，退党洪流，顺天意得民心，在和平解体中共的壮举中，写下壮丽的篇章。</div><p>
 
 
