@@ -104,7 +104,7 @@
 在中国游客常去的釜山龙头山公园，也常常有南女士的身影。感受到法轮功学员们坚强的意志和韧劲，常有大陆游客在旅游车内竖起大拇指表示赞佩，也有人主动前来办理三退（退出中共党团队组织）。
 
 
-<div align="center"><img src="img-1/ 2021-8-18-korean-falun-gong-practitioner_01.jpg" width=640></div>
+<div align="center"><img src="img-1/2021-8-18-korean-falun-gong-practitioner_01.jpg" width=640></div>
 <div align="center">图1：驻釜山中国总领事馆对面，南女士每天在固定的地点挂好真相横幅，向中国人发放真相资料。</div><p>
 
 <b>修炼之初　听闻中共迫害落泪</b><p>
