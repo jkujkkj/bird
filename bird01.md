@@ -99,7 +99,7 @@
 
 <h1 align="center"><b>佛道神真的存在吗？</b></h1>
 
-<div align="center"><img src="img-1/ 74a5d.jpg" width=640></div>
+<div align="center"><img src="img-1/74a5d.jpg" width=640></div>
 <p>
 
 【明慧网二零二一年八月二十二日】在中国五千年的历史长河中一直贯穿着修炼，得道成仙，返本归真，修成正果，而其主要途径一是修道，二是修佛。
