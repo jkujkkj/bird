@@ -101,7 +101,7 @@
 
 <h1 align="center"><b>意前议员揭中共活摘器官 赞法轮功拯救世界</b></h1>
 
-<div align="center"><img src="img-1/图片 3.jpg" width=640></div>
+<div align="center"><img src="img-1/图片3.jpg" width=640></div>
 <div align="center">图为2020年7月23日，意大利法轮功学员来到议会前，抗议中共对法轮功的迫害。伊莉萨白‧赞珀鲁蒂（Elisabetta Zamparutti，右三）到场声援。</div><p>
 
 【大纪元2021年09月02日讯】（大纪元记者徐简综合报导）8月27日，意大利的政治金融媒体Il Riformista发表了前国会议员伊莉萨白‧赞珀鲁蒂（Elisabetta Zamparutti）的文章，她向意大利人民揭露了中共活摘器官的丑闻，并赞扬法轮功学员大善大忍的精神。
