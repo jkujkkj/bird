@@ -104,7 +104,7 @@
 
 <h1 align="center"><b>平常的家庭　不平常的故事</b></h1>
 
-<div align="center"><img src="img-1/ paintg.jpg" width=640></div>
+<div align="center"><img src="img-1/paintg.jpg" width=640></div>
 <p>
 
 【明慧网二零二一年九月十日】我这辈子，前半生就是一个字──「苦」啊！可没想到，后半生，我成了最幸福的人。我就讲讲我的故事。
