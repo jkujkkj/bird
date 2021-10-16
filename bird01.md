@@ -269,8 +269,6 @@
 
 <h1 align="center"><b>我两位爷爷的真实经历</b></h1>
 
-<div align="center"><img src="img-1/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
 
 【明慧网二零二一年十月十五日】我爷爷有六个弟兄，爷爷排行老三，是华北农村的一个普通家族，世代耕种，知书达理，是村里村外称道的好人家。
  
