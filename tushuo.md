@@ -1,1 +1,2 @@
 
+<div align="center"><img src="img-3/3-1108f.jpg" width=640></div>
