@@ -4,7 +4,7 @@
   
 <div align="center"><img src="img-3/2-0901f.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0906f.jpg" width=640></div><p> 
-<div align="center"><img src="img-3/3-0901.jpg" width=640></div><p>  
+<div align="center"><img src="img-3/3-0901f.jpg" width=640></div><p>  
 <div align="center"><img src="img-3/3-0906f.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0901f.jpg" width=640></div><p> 
 <a href=#top><h6 align="right">回上方</h6></a>
