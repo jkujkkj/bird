@@ -4,7 +4,8 @@
   
   
   
-  
+<div align="center"><img src="img-3/1-10241.jpg" width=640></div><p>
+<div align="center"><img src="img-3/1-10222.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-0729.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-0805.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-0713.jpg" width=640></div><p>
