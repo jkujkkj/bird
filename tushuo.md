@@ -2,7 +2,7 @@
   
   
   
-  
+<div align="center"><img src="img-3/1-1022.jpg" width=640></div><p>  
 <div align="center"><img src="img-3/1-10223.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-10244.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-10245.jpg" width=640></div><p>
