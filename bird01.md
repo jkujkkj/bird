@@ -213,7 +213,7 @@
 
 <h1 align="center"><b>一本书翻转人生 台湾强势女变温柔</b></h1>
 
-<div align="center"><img src="img-1/id13403442-2021-11-26-taiwan-liu-ruidong_01-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13403442-2021-11-26-taiwan-liu-ruidong_01-600x400.jpg" width=640></div>
 <div align="center">刘瑞东修炼法轮功后由一位女霸王变成温柔女。图为瑞东正在炼第五套功法——神通加持法。</div><p>
 
 【大纪元2021年11月28日讯】现在大家看到刘瑞东，都觉得她说话轻声细语、处处为别人着想，很温柔善良，但以前她可不是这样。她曾是家中的女霸王，先生是她的出气筒，是儿女的严厉虎妈；街坊邻居最常说的就是“人长得漂亮，但脾气很坏……”
