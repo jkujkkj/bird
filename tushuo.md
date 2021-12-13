@@ -6,8 +6,7 @@
     
     
 
-<div align="center"><img src="img-3/2-1110.jpg" width=640></div><p>
-<div align="center"><img src="img-3/2-1115.jpg" width=640></div><p>
+
 <div align="center"><img src="img-3/3-0716.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0817.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-1020.jpg" width=640></div><p>
