@@ -138,16 +138,16 @@
 【明慧网二零二一年十二月三十日】（明慧记者周文英巴黎报道）辞旧迎新，二零二一年岁末，法国部份法轮功学员怀着对伟大师父李洪志先生的感恩，聚集在巴黎凯旋门下，恭祝师尊新年快乐！他们想对师父说：“师父您辛苦了！谢谢师父！”
  
 跟随师父正法，救度众生，法国大法弟子深感责任重大。他们互相鼓励，修好自己，救更多的人，兑现誓约，完成使命，让师父欣慰。
-<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_01.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_01.jpg" width=640></div>
 <p>
 
-<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_02.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_02.jpg" width=640></div>
 <div align="center">：二零二一年岁末，法国部份大法弟子聚集在巴黎凯旋门下，恭祝师尊新年快乐！</div><p>
 
 <b>生化工程师：漂泊人生找到了方向
 </b><p>
 
-<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_03.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_03.jpg" width=640></div>
 <div align="center">修炼法轮功后，赛德里克感到生活有了目标，他在这个世界上的生存有了意义。</div><p>
 
 赛德里克（Cederic Amiral）是生物化学工程师，在医药诊断行业从事研究工作。
@@ -170,7 +170,7 @@
  
 <b>“只有大法能改变我”</b><p>
  
-<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_05.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_05..jpg" width=640></div>
 <div align="center">张慧敏恭祝师尊新年快乐。</div><p>
 
 张慧敏在修炼之前性格直率、急躁，按她自己的话说，就象一匹野马，谁都管不了她。和她共事的人，谁要跟不上她的速度，她就气得不行，气得肝疼、心疼，为此，她遭了不少罪。
