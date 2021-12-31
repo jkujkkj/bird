@@ -169,8 +169,7 @@
 有师父的感受和他想象的完全不一样，不是拿着教鞭的长者，也不是手持木棍棒喝你的主持和尚。他说：“大法师父，实际上就像是弟子最好的导师，我感到他时时在我身边，引导着我，保护着我。”
  
 <b>“只有大法能改变我”</b><p>
- 
-<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_05..jpg" width=640></div>
+<div align="center"><img src="img-1/2021-12-29-paris-new-year-greetings_05.jpg" width=640></div>
 <div align="center">张慧敏恭祝师尊新年快乐。</div><p>
 
 张慧敏在修炼之前性格直率、急躁，按她自己的话说，就象一匹野马，谁都管不了她。和她共事的人，谁要跟不上她的速度，她就气得不行，气得肝疼、心疼，为此，她遭了不少罪。
