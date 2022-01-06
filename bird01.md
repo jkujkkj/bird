@@ -28,8 +28,6 @@
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird05.md"><b>明真相能保命(六)</a></b></h2>
  
- <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/bird05.md"><b>明真相能保命(六)</a></b></h2>
-  
  <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/tushuo.md"><b>圖說</a></b></h2>
  
 <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
