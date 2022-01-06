@@ -8,7 +8,7 @@
     
     
     
-<div align="center"><img src="img-3/8-0726.jpg" width=640></div><p>
+
 <div align="center"><img src="img-3/8-0726.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-0814.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-1011.jpg" width=640></div><p>
