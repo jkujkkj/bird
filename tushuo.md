@@ -6,7 +6,12 @@
     
     
     
-    
+<div align="center"><img src="img-3/9-0714.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-0801.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-0805.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-0811.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-0812.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-0814.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-11121.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-1119.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-1122.jpg" width=640></div><p>
