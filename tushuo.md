@@ -4,7 +4,9 @@
     <div align=center><b>回首頁 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
     
     
-    
+<div align="center"><img src="img-3/9-102.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-1105.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2255.jpg" width=640></div><p>
 <div align="center"><img src="img-3/9-08141.jpg" width=640></div><p>
 <div align="center"><img src="img-3/9-0819.jpg" width=640></div><p>
 <div align="center"><img src="img-3/9-1018.jpg" width=640></div><p>
