@@ -163,7 +163,7 @@
  
 对一个女人来说，这是无法形容的暴行，在撕裂身体的同时，也撕裂了被迫执行酷刑的犯人的道德伦理；如今，许那在监狱里可能再次经历这样的酷刑。
  
-<div align="center"><img src="img-1/id13517407-xu-na-1.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13517407-xu-na-1.jpg" width=640></div>
 <div align="center">北京画家，法轮功学员许那（大纪元）</div><p>
 
 许那经历了对她的迫害，那是“自由世界”中许多人没有经历过的。
