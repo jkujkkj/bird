@@ -139,7 +139,7 @@
 
 <h1 align="center"><b>许那与数百万灵魂</b></h1>
 
-<div align="center"><img src="img-1/id13517397-xu-na-2012-600x400 (1).jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13517397-xu-na-2012-600x400 (1).jpg" width=640></div>
 <div align="center">北京画家，法轮功学员许那</div><p>
 
 【大纪元2022年01月09日讯】（英文大纪元专栏作家Anders Corr撰文／穆清编译）一个对多数人来说默默无名的女子，被中共的监狱所吞噬。这个女子既是诗人又是画家。她叫许那。
