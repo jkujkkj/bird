@@ -185,7 +185,7 @@
 
 <h1 align="center"><b>中共百种酷刑折磨 逼迫人放弃信仰真善忍</b></h1>
 
-<div align="center"><img src="img-1/ id13518667-732069-15e7b938-600x400.jpeg.jpg" width=640></div>
+<div align="center"><img src="img-1/ id13518667-732069-15e7b938-600x400.jpeg" width=640></div>
 <div align="center">中共使用的部分常见酷刑示意图。</div><p>
 
 【大纪元2022年01月20日讯】（大纪元记者李洁思综合报导）在北京女子监狱的心理咨询室，许那被「熬鹰」、双盘捆绑、劈叉……
