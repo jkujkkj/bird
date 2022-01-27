@@ -9,8 +9,6 @@
     
 <div align="center"><img src="img-3/2-06281.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0628.jpg" width=640></div><p>
-<div align="center"><img src="img-3/2-0629.jpg" width=640></div><p>
-<div align="center"><img src="img-3/2-06251.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0626.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0627.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0622.jpg" width=640></div><p>
