@@ -6,6 +6,12 @@
     
     
     
+    
+    
+<div align="center"><img src="img-3/3-0618.jpg" width=640></div><p>
+<div align="center"><img src="img-3/4-061.jpg" width=640></div><p>
+<div align="center"><img src="img-3/4-062.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0604.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0630.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0610.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0617.jpg" width=640></div><p>
