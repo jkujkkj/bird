@@ -6,7 +6,11 @@
     
     
     
-    
+<div align="center"><img src="img-3/5-0615.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0616.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0618.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0620.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0621.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-06041.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0605.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0610.jpg" width=640></div><p>
