@@ -4,6 +4,13 @@
     <div align=center><b>回首頁 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
     
     
+    
+    
+<div align="center"><img src="img-3/5-0629.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0630.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0703.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0704.jpg" width=640></div><p>
+<div align="center"><img src="img-3/9-0605.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0625.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0626.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0627.jpg" width=640></div><p>
