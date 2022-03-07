@@ -150,7 +150,7 @@
 
 <h1 align="center"><b>大疫情中怎样成为不会被感染的人</b></h1>
 
-<div align="center"><img src="img-1/IMG_3058-e1615435120110.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/IMG_3058-e1615435120110.jpg" width=640></div>
 <div align="center">「我觉得自己非常幸运，上天慈悲地赐予我自救的九字真言，助我走过这一魔难。」越南裔美国人Do Minh Quan在战胜中共病毒（COVID-19）后感慨地说。图为Do Minh Quan 。</div><p>
 
 【大纪元2022年03月06日讯】全球疫情发生两年多了，世人竭尽全力防疫也没有阻止感染势头上升的总体趋势，特别是2022年1月新增病例爆发式的增长，更显防疫措施的无力。面对这样的局面，很有必要对现有防疫策略重新审视。
