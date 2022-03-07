@@ -4,12 +4,10 @@
     <div align=center><b>回首頁 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
     
     
-    
+<div align="center"><img src="img-3/3-1215.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-1215.jpg" width=640></div><p>
+<div align="center"><img src="img-3/8-1215.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-1210.jpg" width=640></div><p>
-<div align="center"><img src="img-3/8-1212.jpg" width=640></div><p>
-<div align="center"><img src="img-3/2-1212.jpg" width=640></div><p>
-<div align="center"><img src="img-3/3-1212.jpg" width=640></div><p>
-<div align="center"><img src="img-3/4-1212.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-1208.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-1208.jpg" width=640></div><p>
 <div align="center"><img src="img-3/9-1210.jpg" width=640></div><p>
