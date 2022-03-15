@@ -151,7 +151,7 @@
 
 <h1 align="center"><b>山东前610副主任获刑 迫害法轮功案例曝光</b></h1>
 
-<div align="center"><img src="img-1/id13614413-1bd81c8eb8a507d008321369c21f40f4-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13614413-1bd81c8eb8a507d008321369c21f40f4-600x400.jpg" width=640></div>
 <div align="center">中共山东省委政法委前副书记惠从冰被判刑。</div><p>
 
 【大纪元2022年03月02日讯】（大纪元记者李洁思综合报导）山东省委政法委前副书记、前省委“610”副主任惠从冰于3月1日被以贿赂罪判刑七年。
