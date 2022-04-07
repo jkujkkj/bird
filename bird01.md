@@ -38,7 +38,8 @@
  
  
  
- 
+<a href =#102>102. 《美国移植杂志》论文
+中国医生活摘器官杀人</a><br> 
 <a href =#101>101. 五年绝食抗议 上海交大优秀学子每一秒的坚持</a><br> 
 <a href =#100>100. 弗吉尼亚州众议院通过决议案
 谴责中共迫害法轮功</a><br> 
@@ -147,6 +148,20 @@
  
 
 
+
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=102>
+
+<h1 align="center"><b>《美国移植杂志》论文
+中国医生活摘器官杀人</b></h1>
+
+<div align="center"><img src="img-1/XXX.jpg" width=640></div>
+<div align="center">XXX</div><p>
+
+
+【文章來源】https://www.minghui.org/mh/articles/2022/4/6/440969.html
 
 
 <a href=#top><h6 align="right">回上方</h6></a>
