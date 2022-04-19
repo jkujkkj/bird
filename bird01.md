@@ -155,7 +155,7 @@
 
 <h1 align="center"><b>有多少人被活摘心脏致死？</b></h1>
 
-<div align="center"><img src="img-1/b602b65f521cfe401817e74795386634-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/b602b65f521cfe401817e74795386634-600x400.jpg" width=640></div>
 <div align="center">横幅上的标语让不少人了解到法轮功在中国被迫害的事情，尤其是活摘器官恶行令人震惊。</div><p>
 
 【大纪元2022年04月17日讯】据明慧网二零二二年四月六日报道，《美国移植杂志》四月四日刊登由澳洲国立大学中国研究博士生罗伯逊（Matthew P.Robertson）与以色列特拉维夫大学医学院教授拉维（Jacob Lavee）联名发表的论文。论文指出，证据显示中国有包括“良心犯”在内的被关押者，在脑死之前遭活摘心脏。
