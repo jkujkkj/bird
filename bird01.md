@@ -241,7 +241,7 @@
  
 我的文笔不好，但我在这几年的修炼过程中遇到过太多的神奇和感动，一时之间无法全部都写出来。也希望有缘能看到我这篇文章的青年们，如果有机会能翻墙，或恰巧看到我这篇文章，希望对大法还抱有迟疑态度的，不妨去了解大法的真相，也许就是这样的一个了解，改变了你的一生。
 
-<div align="center"><img src="img-1/cjja0fq6if2yx0aljy.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/cjja0fq6if2yx0aljy.jpg" width=640></div>
 <div align="center">《转法轮》是指导法轮大法弟子修炼的主要书籍，此书在全世界已被翻译40多种语言。（明慧网）</div><p>
 
 （原文：https://big5.minghui.org/mh/articles/2022/4/18/有幸得知真相-人生得以归正-440350.html
