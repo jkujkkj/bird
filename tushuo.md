@@ -8,6 +8,11 @@
 
 
 
+
+<div align="center"><img src="img-3/1-0502.jpg" width=640></div><p>
+<div align="center"><img src="img-3/1-05021.jpg" width=640></div><p>
+<div align="center"><img src="img-3/1-05023.jpg" width=640></div><p>
+<div align="center"><img src="img-3/3-0502.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0308.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0308.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0308.jpg" width=640></div><p>
