@@ -167,7 +167,7 @@
 <h1 align="center"><b>从阅读障碍到为人师表 西人女子泪谢师恩
 </b></h1>
 
-<div align="center"><img src="img-1/ID1026-Natalia-Nutting-.jpg.jpg" width=640></div></div><p>
+<div align="center"><img src="img-1/ID1026-Natalia-Nutting-.jpg" width=640></div></div><p>
 
 【明慧之窗记者宋芙瑛综合报导】娜塔莉亚．纳丁（Natalia Nutting）是一位西人法轮功学员，今年四十岁，从事教师工作。鼻梁上的眼镜挡不住她聪慧、知性的眼神，而落落大方的谈吐，在优雅中透出自信。
  
@@ -196,7 +196,7 @@
  
 「我是如此地激动，因为我从很小的时候，大概是六岁，就在寻找大法，但从来没有在任何一个宗教信仰中找到，我涉猎了一个又一个不同的宗教信仰，从来没有找到答案，直到找到法轮大法。」
 
-<div align="center"><img src="img-1/cjwq3x2seyjq0uaaz2.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/cjwq3x2seyjq0uaaz2.jpg" width=640></div>
 <div align="center">不同语种版本的《转法轮》。</div><p>
 
 纳丁说：「师父用如此简单的方式解释了宇宙的法则，我理解到，只要我们同化真、善、忍，我们就是同化宇宙和自然，我们就可以回家，这是最简单的事情，从来没有人用这么简单的方式解释这些。师父让我最终明白了！」
