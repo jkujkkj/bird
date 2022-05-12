@@ -222,7 +222,7 @@
  
 而法轮大法的主要经书《转法轮》，要求修炼人在生活中实践真、善、忍，是真正度人的佛法。现在当地很多蒙族人都明白了，法轮功是正法，是来度人的，这就是「将来出来的经才能度人」。
 
-<div align="center"><img src="img-1/cjvzo9vn2eqsqipahm.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/cjvzo9vn2eqsqipahm.jpg" width=640></div>
 <div align="center">1992年在长春传开后，短短几年间中国修炼者将近一亿。（图片来源：法轮功学员画作）</div><p>
 
 <b>二、德高望重老喇嘛的故事</b><p>
@@ -251,7 +251,7 @@
  
 当地百姓奔走相告，亲戚间互相嘱咐：「不修不炼也不能说法轮功不好！老喇嘛不让说法轮功坏话，说法轮功是正的，是共产党坏。」
 
-<div align="center"><img src="img-1/cjvzmcf31o07xornmu.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/cjvzmcf31o07xornmu.jpg" width=640></div>
 <div align="center">老喇嘛还预知：「将来人人都得炼法轮功。」（图片来源：大纪元）</div><p>
 
 <b>预言自己的圆寂</b><p>
@@ -328,7 +328,9 @@ https://big5.minghui.org/mh/articles/2012/3/19/蒙族喇嘛-法轮功是正法-2
 《转法轮》从一九九四年十二月开始以中文出版发行，仅仅二十多年，已被译为近四十种语言。超越了中华民族文化的巅峰，创造了世界文化史上的奇迹。而且，能在短时间内迅速传播世界并赢得各族裔民众如此的敬仰，在人类的历史上是前所未有的辉煌。
  
 一本书，能使上亿人受益，纳丁的故事也许就发生在您的身边。
+ 
 在线阅读各语种《转法轮》：https://www.falundafa.org/
+ 
  
 线上免费学习班 https://chinese.learnfalungong.com/
 （原文：
