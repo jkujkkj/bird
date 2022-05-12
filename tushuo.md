@@ -9,7 +9,7 @@
 
 
 
-<div align="center"><img src="img-3/ 1-0505.jpg" width=640></div><p>
+<div align="center"><img src="img-3/1-0505.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-050.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-05051.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-05052.jpg" width=640></div><p>
