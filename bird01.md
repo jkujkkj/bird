@@ -37,7 +37,7 @@
 <a name=top>
  
  
- 
+<a href =#114>114. 中共加速自我解体 觉醒民众踊跃三退</a><br> 
 <a href =#113>113. 首尔法轮功免费九天班 传送珍贵的秘方</a><br> 
 <a href =#112>112. 蒙族喇嘛的预言句句应验</a><br> 
 <a href =#111>111. 从阅读障碍到为人师表 西人女子泪谢师恩</a><br> 
@@ -158,7 +158,7 @@
 
  
  
-<a href =#114>114. 中共加速自我解体 觉醒民众踊跃三退</a><br>
+
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
@@ -166,7 +166,7 @@
 
 <h1 align="center"><b>中共加速自我解体 觉醒民众踊跃三退</b></h1>
 
-<div align="center"><img src="img-1/51959030019_a87860af8c_o-768x512.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/51959030019_a87860af8c_o-768x512.jpg" width=640></div>
 <div align="center">2021年5月13日，纽约部分法轮功学员在曼哈顿游行声援中国民众退出中共组织。</div><p>
 
 	【全球退党服务中心2022年05月02日讯】
