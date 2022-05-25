@@ -9,6 +9,11 @@
 
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/tushuo-1.md"><b>图说真相(一)</a></b></h2>
 
+
+<div align="center"><img src="img-3/5-0328.jpg" width=640></div><p>
+<div align="center"><img src="img-3/1-0328.jpg" width=640></div><p>
+<div align="center"><img src="img-3/3-0328.jpg" width=640></div><p>
+<div align="center"><img src="img-3/3-03281.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-0324.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0324.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-03241.jpg" width=640></div><p>
