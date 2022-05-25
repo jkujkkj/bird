@@ -170,8 +170,7 @@
 <h1 align="center"><b>我一生最引以为荣的选择
 </b></h1>
 
-<div align="center"><img src="img-1/1010.jpg" width=640></div>
-<p>
+<div align="center"><img src="img-1/1010.jpg" width=640></div><p>
 
 常言道：「江山易改，本性难移」。可我修炼了法轮大法之后，就被大法彻底改变，几乎变成了另外一个人。
 	
@@ -199,7 +198,7 @@
 	
 我当时怒不可遏，爬起来就过去拽住司机的衣领，那司机吓得脸都发白了。剎那间，我想起自己是大法弟子了，对别人要宽容，立刻松手，转身扶起电动车骑上就走了。而那司机一下愣在那里了。
 
-<div align="center"><img src="img-1/cjw2mfi0tewizplswr.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/cjw2mfi0tewizplswr.jpg" width=640></div>
 <div align="center">法轮功教导人遵循「真、善、忍」原则做人处世，加上五套功法，不仅为广大民众带来袪病健身的奇效，同时帮助道德提升。 </div><p>
 
 <b>被大法改变 同学：简直判若两人</b><p>
