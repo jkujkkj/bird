@@ -170,7 +170,7 @@
 <h1 align="center"><b>我一生最引以为荣的选择
 </b></h1>
 
-<div align="center"><img src="img-1/1010.jpg" width=640></div><p>
+<div align="center"><img src="img-1/1010pixabay.jpg" width=640></div><p>
 
 常言道：「江山易改，本性难移」。可我修炼了法轮大法之后，就被大法彻底改变，几乎变成了另外一个人。
 	
