@@ -172,7 +172,7 @@
 <h1 align="center"><b>「毒誓」不能发 看看中外典故如何慎对誓言
 </b></h1>
 
-<div align="center"><img src="img-1/1220--------------pixabay.jpg" width=640></div><p>
+<div align="center"><img src="img-1/1220 (1).jpg" width=640></div><p>
 
 誓，按照现代人的理解，就是誓言、起誓的意思，大意是用庄重的言辞来约束自己的行为。
 	
