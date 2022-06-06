@@ -172,8 +172,7 @@
 <h1 align="center"><b>「毒誓」不能发 看看中外典故如何慎对誓言
 </b></h1>
 
-<div align="center"><img src="img-1/1220--------------pixabay.jpg" width=640></div>
-<p>
+<div align="center"><img src="img-1/1220--------------pixabay.jpg" width=640></div><p>
 
 誓，按照现代人的理解，就是誓言、起誓的意思，大意是用庄重的言辞来约束自己的行为。
 	
@@ -207,7 +206,7 @@
 	
 这些誓词总体来看，是一个环环相扣的死结：无条件服从中共及其附属组织的一切决定；党第一人民第二；为党牺牲一切；如果人民的利益与党冲突，必须永不叛党。
 
-<div align="center"><img src="img-1/ckgha18tp6qkbzvcyy.jpg.jpg" width=640></div>
+<div align="center"><img src="img-1/ckgha18tp6qkbzvcyy.jpg" width=640></div>
 <div align="center">与天斗、与地斗、与神斗的共产党，要你发誓跟它站在一起，站在神的对立面。（明慧网）</div><p>
 
 中共与天斗，破坏自然；与地斗，毁灭生态；与神斗，残害信仰；与人斗，灭绝人性；与文明斗，灭绝文化；与百姓斗，苛暴压榨。可见，加入中共所起的誓，肯定不是给天、地、神、人任何一个对象的誓言，那唯一的合理解释，就是对魔鬼的立誓。
