@@ -2,7 +2,9 @@
 
 <div align=center><b>明慧之窗 真相能给你未来希望
 http://lo.ddns.me/sF3VQ
-
+    
+    
+<div align="center"><img src="img-3/FVC07LCF8E.jpg" width=640></div><p>
 
 
 <p>
