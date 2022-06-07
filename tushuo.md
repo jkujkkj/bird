@@ -4,9 +4,6 @@
 http://lo.ddns.me/sF3VQ
     
     
-<div align="center"><img src="img-3/FVC07LCF8E.jpg" width=640></div><p>
-
-
 <p>
     <div align=center><b>更多真相 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
     
