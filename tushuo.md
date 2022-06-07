@@ -1,7 +1,8 @@
 <p>
 
 <div align=center><b>明慧之窗 真相能给你未来希望
-http://lo.ddns.me/sF3VQ/jkujkkj/bird/blob/master/bird01.md </b></div>
+http://lo.ddns.me/sF3VQ
+
 
 
 <p>
