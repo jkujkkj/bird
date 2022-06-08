@@ -3,7 +3,7 @@
 <div align=center><b>明慧之窗 真相能给你未来希望
 http://3344.us.to/yuchia/newest/220602-1197.html 
     
-<div align="center"><img src="img-3/FVC07LCF8E.jpg" width=300></div><p>
+<div align="center"><img src="img-1/123456.jpg" width=300></div><p>
     
 <p>
     <div align=center><b>更多真相 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
