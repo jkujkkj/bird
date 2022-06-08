@@ -1,8 +1,7 @@
 <p>
 
 <div align=center><b>明慧之窗 真相能给你未来希望
-http://lo.ddns.me/sF3VQ
-    
+http://3344.us.to/yuchia/newest/220602-1197.html 
     
 <p>
     <div align=center><b>更多真相 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
