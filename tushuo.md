@@ -12,6 +12,13 @@
 
 
 
+
+
+
+<div align="center"><img src="img-3/1-0621.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-0621.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-06211.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0621.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0614.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0614.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0614.jpg" width=640></div><p>
