@@ -31,13 +31,16 @@
  <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/tushuo.md"><b>图说真相</a></b></h2>
  
 <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
- 
+	
+	
+ <div align="center"><img src="img-1/123456.jpg" width=200></div><p>
 
  
 <a name=top>
 	
 	
-<a href =#119>119. 请关注中国大陆法轮功学员的悲惨遭遇	
+<a href =#119>119. 请关注中国大陆法轮功学员的悲惨遭遇
+	
 <a href =#118>118. 「毒誓」不能发 看看中外典故如何慎对誓言</a><br>	
 <a href =#117>117. 谁会被记入「恶人榜」？</a><br>	
 <a href =#116>116. 我一生最引以为荣的选择</a><br> 
@@ -174,7 +177,7 @@
 <h1 align="center"><b>请关注中国大陆法轮功学员的悲惨遭遇
 </b></h1>
 
-<div align="center"><img src="img-1/id13779776-1907181540511973-x400.jpeg.jpg" width=640></div>
+<div align="center"><img src="img-1/id13779776-1907181540511973-x400.jpeg" width=640></div>
 <div align="center">海外法轮功学员呼吁停止迫害法轮功。</div><p>
 
 【大纪元2022年07月13日讯】据明慧网报导统计，二零二二年上半年获知366名法轮功学员被中共非法判刑。最严重的地区依次为：山东省54人，辽宁省44人，北京市30人，广东省30人，河北省24人，黑龙江省23人，吉林省20人。有107名60岁以上老年法轮功学员被非法判刑，年龄最长者85岁。中共法庭共勒索罚金1,513,500元。二零二二年一至六月份获知，又有92名法轮功学员被中共迫害离世。
@@ -209,8 +212,6 @@
 愿中国大陆所有心存正义善良的人们及国际社会关注所有处在被迫害中的法轮功学员的悲惨遭遇，早日解体中共，制止中共对宗教信仰自由的破坏，结束这场已经长达23年的对法轮功学员的残酷迫害！
 
 【文章來源】https://www.epochtimes.com/gb/22/7/13/n13779770.htm
-
-<div align="center"><img src="img-1/123456.jpg" width=200></div><p>
 
 
 <a href=#top><h6 align="right">回上方</h6></a>
