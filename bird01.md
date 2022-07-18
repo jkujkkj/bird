@@ -33,8 +33,6 @@
 <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
 	
 	
- <div align="center"><img src="img-1/123456.jpg" width=200></div><p>
-
  
 <a name=top>
 	
