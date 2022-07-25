@@ -12,7 +12,6 @@
 
 
 <div align="center"><img src="img-3/2-0708.jpg" width=640></div><p>
-<div align="center"><img src="img-3/4-0708.jpg" width=640></div><p>
 <div align="center"><img src="img-3/4-07081.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0708.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-0704.jpg" width=640></div><p>
@@ -20,6 +19,7 @@
 <div align="center"><img src="img-3/5-0704.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-0704.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0701.jpg" width=640></div><p>
+<div align="center"><img src="img-3/4-0708.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0701.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-07011.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0701.jpg" width=640></div><p>
