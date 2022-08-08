@@ -11,7 +11,10 @@
 <h2 align="center"><a href="https://github.com/jkujkkj/bird/blob/master/tushuo-1.md"><b>图说真相(一)</a></b></h2>
 
 
-
+<div align="center"><img src="img-3/1-0722.jpg" width=640></div><p>
+<div align="center"><img src="img-3/3-0722.jpg" width=640></div><p>
+<div align="center"><img src="img-3/8-0722.jpg" width=640></div><p>
+<div align="center"><img src="img-3/8-07221.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-07123.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-07122.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-07121.jpg" width=640></div><p>
