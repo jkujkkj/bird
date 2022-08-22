@@ -12,7 +12,6 @@
 
 
 
-<div align="center"><img src="img-3/9-0805.jpg" width=640></div><p>
 <div align="center"><img src="img-3/8-0805.jpg" width=640></div><p>
 <div align="center"><img src="img-3/1-0805.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0805.jpg" width=640></div><p>
