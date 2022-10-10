@@ -11,7 +11,10 @@
 
 
 
-
+<div align="center"><img src="img-3/5-0927.jpg" width=640></div><p>
+<div align="center"><img src="img-3/1-0927.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-0927.jpg" width=640></div><p>
+<div align="center"><img src="img-3/3-0927.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-0923.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0923.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-09231.jpg" width=640></div><p>
