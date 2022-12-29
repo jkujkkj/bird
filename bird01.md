@@ -12,6 +12,9 @@
  
  
 <div align=center><b> 看更多真相   https://bit.ly/3ezRQKo  </b></div>
+	
+<div align=center><b>更多圖片 https://github.com/jkujkkj/bird/blob/master/tushuo-2.md </b></div>
+<div align=center><b>更多圖片https://github.com/jkujkkj/bird/blob/master/tushuo-1.md </b></div> 	
 
 
 <h1><b><a href="https://bit.ly/2RQM1hX/awwkk/usdom/blob/master/forfor.md"></a></b></h1></div>
