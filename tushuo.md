@@ -3,9 +3,9 @@
 <p>
     <div align=center><b>更多真相 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>  
       
-<div align=center><b>更多圖片 https://github.com/jkujkkj/bird/blob/master/tushuo-2.md </b></div>
+
 <div align=center><b>更多圖片https://github.com/jkujkkj/bird/blob/master/tushuo-1.md </b></div> 
-    
+<div align=center><b>更多圖片 https://github.com/jkujkkj/bird/blob/master/tushuo-2.md </b></div>    
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
 
