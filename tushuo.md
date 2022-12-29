@@ -4,6 +4,9 @@
 <p>
     <div align=center><b>更多真相 https://github.com/jkujkkj/bird/blob/master/bird01.md </b></div>
     
+    https://github.com/jkujkkj/bird/blob/master/tushuo-2.md
+    https://github.com/jkujkkj/bird/blob/master/tushuo-1.md
+    
   
     
     
