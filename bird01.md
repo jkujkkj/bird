@@ -241,8 +241,7 @@
 	
 愿每个中国人都能平安渡过劫难，迎来美好明天。
 	
-	【文章來源】https://www.epochtimes.com/gb/22/12/23/n13890697.htm
-
+【文章來源】https://www.epochtimes.com/gb/22/12/23/n13890697.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
