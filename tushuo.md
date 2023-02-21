@@ -5,11 +5,15 @@
       
 
 <div align=center><b>更多圖片https://github.com/jkujkkj/bird/blob/master/tushuo-1.md </b></div> 
-<div align=center><b>更多圖片 https://github.com/jkujkkj/bird/blob/master/tushuo-2.md </b></div>    
+<div align=center><b>更多圖片 https://github.com/jkujkkj/bird/blob/master/tushuo-2.md </b></div>  
+
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p>
 
 
-
+<div align="center"><img src="img-3/1-0221.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-0221.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-02211.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-02212.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0217.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-02171.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0217.jpg" width=640></div><p>
