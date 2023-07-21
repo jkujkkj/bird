@@ -13,7 +13,7 @@
 
 <div align="center"><img src="img-3/3-0720.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-07201.jpg" width=640></div><p>
-<div align="center"><img src="img-3/5-07120.jpg" width=640></div><p>
+<div align="center"><img src="img-3/5-0720.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-07202.jpg" width=640></div><p>
 <div align="center"><img src="img-3/3-0718.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-0718.jpg" width=640></div><p>
