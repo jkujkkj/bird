@@ -10,7 +10,10 @@
 <IMG SRC="bird/img/圖片 19.jpg" width=800></p> 
 
 
-
+<div align="center"><img src="img-3/5-1204.jpg" width=640></div><p>
+<div align="center"><img src="img-3/3-1204.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-12041.jpg" width=640></div><p>
+<div align="center"><img src="img-3/2-1204.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-12011.jpg" width=640></div><p>
 <div align="center"><img src="img-3/5-1201.jpg" width=640></div><p>
 <div align="center"><img src="img-3/2-1201.jpg" width=640></div><p>
